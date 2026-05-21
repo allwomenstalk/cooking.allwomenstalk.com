@@ -3,7 +3,7 @@ title: "8 Sneaky Recipes for Kids Who Hate Vegetables ..."
 description: "Mini Quiches; Chicken Noodle Soup; Vegetable Frankie; Sweet Potato Sticks; Bubble & Squeak Potato Cakes; More ..."
 url: "https://cooking.allwomenstalk.com/sneaky-recipes-for-kids-who-hate-vegetables-2/"
 category: "cooking"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Sneaky Recipes for Kids Who Hate Vegetables ...
@@ -233,15 +233,15 @@ Top Photo Credit: [youngandraw.com](https://www.youngandraw.com/10-tips-for-rais
 
 ## Related Posts
 
-- [reuse cans](https://diy.allwomenstalk.com/clever-ways-to-repurpose-tuna-cans/)
-- [best egg sandwich recipes](https://cooking.allwomenstalk.com/great-egg-sandwich-recipes-for-everyone/)
-- [planning a dinner party for 10](https://lifestyle.allwomenstalk.com/easy-tips-on-throwing-the-best-dinner-party-ever/)
-- [crescent roll instructions](https://cooking.allwomenstalk.com/easy-crescent-roll-recipes/)
 - [what is the worst food for you](https://food.allwomenstalk.com/simple-dinner-anyone-can-learn-to-make/)
+- [healthy recipes kale](https://diet.allwomenstalk.com/healthy-kale-recipes/)
+- [crescent roll instructions](https://cooking.allwomenstalk.com/easy-crescent-roll-recipes/)
 - [substitutes for cooking](https://food.allwomenstalk.com/simple-ingredient-substitutions-to-try/)
+- [planning a dinner party for 10](https://lifestyle.allwomenstalk.com/easy-tips-on-throwing-the-best-dinner-party-ever/)
+- [best egg sandwich recipes](https://cooking.allwomenstalk.com/great-egg-sandwich-recipes-for-everyone/)
+- [reuse cans](https://diy.allwomenstalk.com/clever-ways-to-repurpose-tuna-cans/)
 - [new thanksgiving dinner ideas](https://allwomenstalk.com/7-new-ideas-for-thanksgiving-dinner/)
 - [500 calorie lunches for work](https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/)
-- [healthy recipes kale](https://diet.allwomenstalk.com/healthy-kale-recipes/)
 - [ethnic food ideas](https://cooking.allwomenstalk.com/healthy-and-filling-ethnic-recipes-to-try-this-fall/)
 - [8 Scrumptious Recipes for Beginner Vegetarians ...](https://food.allwomenstalk.com/scrumptious-recipes-for-beginner-vegetarians/)
 - [8 Veggies to Serve Your Child ...](https://allwomenstalk.com/8-veggies-to-serve-your-child/)

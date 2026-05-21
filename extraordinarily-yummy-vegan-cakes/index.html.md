@@ -3,7 +3,7 @@ title: "8 Extraordinarily Yummy Vegan Cakes ..."
 description: "Black Forest Cherry Cake at vegansociety.com; Best Chocolate Cake Ever at instructables.com; Vegan Gingerbread at grouprecipes.com; Vegan Carrot Cake at grouprecipes.com; Vegan Red Velvet Cake at thedailygreen.com; More ..."
 url: "https://cooking.allwomenstalk.com/extraordinarily-yummy-vegan-cakes/"
 category: "cooking"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Extraordinarily Yummy Vegan Cakes ...

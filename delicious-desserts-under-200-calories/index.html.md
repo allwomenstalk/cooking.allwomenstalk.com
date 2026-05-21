@@ -3,7 +3,7 @@ title: "7 Delicious Desserts under 200 Calories ..."
 description: "Sorbet; Rice Pudding; Baked Apple; Frozen Bananas; Fruit Smoothies; More ..."
 url: "https://cooking.allwomenstalk.com/delicious-desserts-under-200-calories/"
 category: "cooking"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Delicious Desserts under 200 Calories ...

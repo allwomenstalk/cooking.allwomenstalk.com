@@ -3,7 +3,7 @@ title: "8 Sweet Peppermint Recipes to Try ..."
 description: "Peppermint Marshmallow Pops...; Candy Cane Cookies...; Beat Together 1 Cup Sugar, the Butter, Milk, Vanilla, Peppermint Extract and Egg in Large Bowl. Mixture Will Be Loose. Beat in Flour, Baking Powder and Salt until Dough Comes Together. It Will Be Sticky. Divide Dough in Half. Stir Food Color into One Half. Cover and Refrigerate at Least 4 Hours; Heat Oven to 375ºF. Stir Together Peppermint Candy and 2 Tablespoon Sugar; Set Aside; For Each Candy Cane, Shape 1 Rounded Teaspoon Dough from Each Half into 4-inch Rope by Rolling Back and Forth on a Lightly Floured Surface (if You Use Too Much Flour, the Dough Will Not Stick Together). Place 1 Red and White Rope Side by Side; Press Together Lightly and Twist. Place on Ungreased Cookie Sheet; Curve Top of Cookie down to Form Handle of Cane; More ..."
 url: "https://cooking.allwomenstalk.com/sweet-peppermint-recipes-to-try/"
 category: "cooking"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Sweet Peppermint Recipes to Try ...
@@ -298,16 +298,16 @@ _Top Photo_
 
 ## Related Posts
 
-- [sweet and creamy desserts 9 letters](https://food.allwomenstalk.com/divine-desserts-for-valentines-day/)
-- [co bigelow rose salve ingredients](https://food.allwomenstalk.com/decadent-chocolate-recipes/)
+- [indulge cupcakery](https://food.allwomenstalk.com/delicious-cupcake-flavors-to-indulge-in/)
 - [delicious cookie recipes](https://baking.allwomenstalk.com/delicious-cookie-recipes-you-wont-be-able-to-resist/)
 - [ways to use nutella](https://food.allwomenstalk.com/delicious-recipes-using-nutella/)
-- [indulge cupcakery](https://food.allwomenstalk.com/delicious-cupcake-flavors-to-indulge-in/)
-- [list of 90s candy](https://lifestyle.allwomenstalk.com/90s-candies-that-i-loved/)
-- [bacon desert](https://food.allwomenstalk.com/daring-desserts-with-bacon/)
-- [store-bought alfredo sauce hacks](https://food.allwomenstalk.com/delicious-muffin-tin-recipes/)
-- [edp cupcakes](https://food.allwomenstalk.com/sweet-recipes-for-valentines-day/)
 - [candy making](https://food.allwomenstalk.com/tips-for-making-candy/)
+- [edp cupcakes](https://food.allwomenstalk.com/sweet-recipes-for-valentines-day/)
+- [list of 90s candy](https://lifestyle.allwomenstalk.com/90s-candies-that-i-loved/)
+- [sweet and creamy desserts 9 letters](https://food.allwomenstalk.com/divine-desserts-for-valentines-day/)
+- [co bigelow rose salve ingredients](https://food.allwomenstalk.com/decadent-chocolate-recipes/)
+- [store-bought alfredo sauce hacks](https://food.allwomenstalk.com/delicious-muffin-tin-recipes/)
+- [bacon desert](https://food.allwomenstalk.com/daring-desserts-with-bacon/)
 - [8 Desserts You Have to Try ...](https://thecrepescafe.com/8-desserts-you-have-to-try/)
 - [7 Cool Recipes to Try ...](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)
 
