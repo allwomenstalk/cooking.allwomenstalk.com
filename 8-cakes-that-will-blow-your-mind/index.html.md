@@ -3,7 +3,7 @@ title: "8 Cakes That Will Blow Your Mind ..."
 description: "Red Velvet; Boston Cream Pie; Nigella’s Butterscotch Layer Cake; Carrot Cake; Baked Vanilla Cheesecake; More ..."
 url: "https://cooking.allwomenstalk.com/8-cakes-that-will-blow-your-mind/"
 category: "cooking"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 8 Cakes That Will Blow Your Mind ...

@@ -3,7 +3,7 @@ title: "9 Delightful Easy Sauce Recipes ..."
 description: "Creamy Mustard Sauce; Malay Coconut Fragrant Yellow Curry Sauce; Mushroom Gravy; Easy Tomato Sauce; Hot Mexican Salsa; More ..."
 url: "https://cooking.allwomenstalk.com/delightful-easy-sauce-recipes/"
 category: "cooking"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Delightful Easy Sauce Recipes ...

@@ -3,7 +3,7 @@ title: "7 Fabulous and Fruity Mocktail Recipes ..."
 description: "Virgin Grapefruit Mojito; Pomegranate-Citrus Juice; Spicy Raspberry Lemon Cooler; Apple Ginger Sparklers; Virgin Garden Mary; More ..."
 url: "https://cooking.allwomenstalk.com/fabulous-and-fruity-mocktail-recipes/"
 category: "cooking"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Fabulous and Fruity Mocktail Recipes ...
@@ -14,7 +14,7 @@ Mocktail recipes are basically like your favorite cocktail recipes, they just ta
 
 ![Virgin Grapefruit Mojito](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/cooking/2012/05/1_virgin-grapefruit-mojito_350x263.jpg)
 
-The Mojito is probably one of the [most popular cocktails](https://food.allwomenstalk.com/classic-cocktails-every-woman-should-know-how-to-make/) right now, so it stands to reason that there are lots of mocktail recipes incorporating it. This one makes use of grapefruit, honey, soda or flavored water, and of course, plenty of mint! It will cool you down on any hot summer night, so it's ideal for cocktail – or mocktail! – parties.
+The Mojito is probably one of the most popular cocktails right now, so it stands to reason that there are lots of mocktail recipes incorporating it. This one makes use of grapefruit, honey, soda or flavored water, and of course, plenty of mint! It will cool you down on any hot summer night, so it's ideal for cocktail – or mocktail! – parties.
 
 **Ingredients:**
 1/4 ruby or pink grapefruit, cut into small chunks and seeds removed
@@ -171,16 +171,16 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/26663722)
 
 ## Related Posts
 
-- [what to drink in winter to keep warm](https://food.allwomenstalk.com/fun-warm-drinks-to-make-this-winter/)
-- [best summer teas](https://food.allwomenstalk.com/best-iced-tea-recipes-to-enjoy-in-summer/)
-- [drinks that have high protein](https://diet.allwomenstalk.com/high-protein-cocktails-for-after-a-workout/)
-- [cherry chocolate cake](https://food.allwomenstalk.com/boozy-cupcake-recipes/)
-- [steps to make hot chocolate](https://food.allwomenstalk.com/easy-steps-to-make-hot-chocolate/)
-- [jamba smoothie mix](https://food.allwomenstalk.com/best-jamba-juice-smoothies-to-try/)
-- [famous starbucks coffee](https://food.allwomenstalk.com/best-starbucks-drinks-to-enjoy/)
-- [most popular mix drinks](https://food.allwomenstalk.com/classic-cocktails-every-woman-should-know-how-to-make/)
-- [antioxidants organic drinks](https://health.allwomenstalk.com/beverages-with-antioxidants-that-keep-you-looking-young/)
 - [malibu and mountain dew](https://food.allwomenstalk.com/beverage-inspired-cupcakes/)
+- [jamba smoothie mix](https://food.allwomenstalk.com/best-jamba-juice-smoothies-to-try/)
+- [what to drink in winter to keep warm](https://food.allwomenstalk.com/fun-warm-drinks-to-make-this-winter/)
+- [cherry chocolate cake](https://food.allwomenstalk.com/boozy-cupcake-recipes/)
+- [best summer teas](https://food.allwomenstalk.com/best-iced-tea-recipes-to-enjoy-in-summer/)
+- [antioxidants organic drinks](https://health.allwomenstalk.com/beverages-with-antioxidants-that-keep-you-looking-young/)
+- [drinks that have high protein](https://diet.allwomenstalk.com/high-protein-cocktails-for-after-a-workout/)
+- [steps to make hot chocolate](https://food.allwomenstalk.com/easy-steps-to-make-hot-chocolate/)
+- [most popular mix drinks](https://food.allwomenstalk.com/classic-cocktails-every-woman-should-know-how-to-make/)
+- [famous starbucks coffee](https://food.allwomenstalk.com/best-starbucks-drinks-to-enjoy/)
 - [7 Chillingly Spooky but Outrageously Fabulous Cock...](https://food.allwomenstalk.com/chillingly-spooky-but-outrageously-fabulous-cocktail-recipes/)
 - [8 Sensationally Fab  Delicious Party Cocktail Reci...](https://food.allwomenstalk.com/fab-delicious-party-cocktail-recipes/)
 
