@@ -56,16 +56,16 @@ If you’ve got any shortcut foods you think we can all benefit from, why not le
 
 ## Related Posts
 
-- [8 Best Organic Foods to Buy ...](https://food.allwomenstalk.com/best-organic-foods-to-buy/)
-- [Top 10 Foods with Antioxidants ...](https://diet.allwomenstalk.com/top-foods-with-antioxidants/)
 - [8 Food Additvies to Steer Clear of ...](https://diet.allwomenstalk.com/food-additvies-to-steer-clear-of/)
-- [natural anti inflammatory foods](https://cooking.allwomenstalk.com/delicious-natural-anti-inflammatory-foods/)
+- [Top 10 Foods with Antioxidants ...](https://diet.allwomenstalk.com/top-foods-with-antioxidants/)
 - [healthy alternative meals](https://diet.allwomenstalk.com/healthy-and-diet-friendly-alternatives-to-your-favorite-comfort-foods/)
-- [foods most people dont like](https://cooking.allwomenstalk.com/foods-we-hate-but-shouldnt/)
+- [natural anti inflammatory foods](https://cooking.allwomenstalk.com/delicious-natural-anti-inflammatory-foods/)
 - [vending machines healthy options](https://cooking.allwomenstalk.com/healthy-vending-machine-snacks/)
-- [8 Foods That Fight Pain ...](https://cooking.allwomenstalk.com/foods-that-fight-pain/)
+- [8 Best Organic Foods to Buy ...](https://food.allwomenstalk.com/best-organic-foods-to-buy/)
 - [7 Fast Foods to Avoid Altogether ...](https://diet.allwomenstalk.com/fast-foods-to-avoid-altogether/)
 - [10 Healthy Diet Foods for Fall ...](https://diet.allwomenstalk.com/healthy-diet-foods-for-fall/)
+- [8 Foods That Fight Pain ...](https://cooking.allwomenstalk.com/foods-that-fight-pain/)
+- [foods most people dont like](https://cooking.allwomenstalk.com/foods-we-hate-but-shouldnt/)
 - [7 Must Have Things in Your Fridge ...](https://cooking.allwomenstalk.com/7-must-have-things-in-your-fridge/)
 - [10 Thrifty Food Tips ...](https://cooking.allwomenstalk.com/thrifty-food-tips/)
 

@@ -45,15 +45,15 @@ Top Photo Credit: [SydneyWalker](https://www.flickr.com/photos/sydneywalker/1070
 ## Related Posts
 
 - [smart food ideas](https://cooking.allwomenstalk.com/quick-smart-foods/)
+- [8 Foods That Fight Pain ...](https://cooking.allwomenstalk.com/foods-that-fight-pain/)
 - [vending machines healthy options](https://cooking.allwomenstalk.com/healthy-vending-machine-snacks/)
-- [8 Best Organic Foods to Buy ...](https://food.allwomenstalk.com/best-organic-foods-to-buy/)
-- [foods most people dont like](https://cooking.allwomenstalk.com/foods-we-hate-but-shouldnt/)
-- [8 Food Additvies to Steer Clear of ...](https://diet.allwomenstalk.com/food-additvies-to-steer-clear-of/)
+- [healthy alternative meals](https://diet.allwomenstalk.com/healthy-and-diet-friendly-alternatives-to-your-favorite-comfort-foods/)
 - [7 Fast Foods to Avoid Altogether ...](https://diet.allwomenstalk.com/fast-foods-to-avoid-altogether/)
 - [Top 10 Foods with Antioxidants ...](https://diet.allwomenstalk.com/top-foods-with-antioxidants/)
-- [8 Foods That Fight Pain ...](https://cooking.allwomenstalk.com/foods-that-fight-pain/)
 - [natural anti inflammatory foods](https://cooking.allwomenstalk.com/delicious-natural-anti-inflammatory-foods/)
-- [healthy alternative meals](https://diet.allwomenstalk.com/healthy-and-diet-friendly-alternatives-to-your-favorite-comfort-foods/)
+- [8 Best Organic Foods to Buy ...](https://food.allwomenstalk.com/best-organic-foods-to-buy/)
+- [8 Food Additvies to Steer Clear of ...](https://diet.allwomenstalk.com/food-additvies-to-steer-clear-of/)
+- [foods most people dont like](https://cooking.allwomenstalk.com/foods-we-hate-but-shouldnt/)
 - [7 Most Exotic Delicacies in the World ...](https://cooking.allwomenstalk.com/7-most-exotic-delicacies-in-the-world/)
 - [7 Unusual Foods for the Barbecue ...](https://cooking.allwomenstalk.com/unusual-foods-for-the-barbecue/)
 

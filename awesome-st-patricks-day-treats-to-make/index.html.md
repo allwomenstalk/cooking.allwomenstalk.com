@@ -64,16 +64,16 @@ For our readers who are kitchen goddesses, we'd love to know some of your **trus
 
 ## Related Posts
 
-- [7-up cupcakes](https://cooking.allwomenstalk.com/scrumptious-and-fabulous-grown-up-cupcakes/)
-- [decorating a cake ideas](https://cooking.allwomenstalk.com/fun-tips-for-fabulous-cake-decorating/)
-- [betty crocker chocolate snack cake](https://food.allwomenstalk.com/snack-cake-recipes-to-try-at-home/)
 - [homemade turkey dog treats](https://lifestyle.allwomenstalk.com/homemade-dog-treats-to-make/)
-- [easy small bite desserts](https://cooking.allwomenstalk.com/easy-bite-sized-summer-desserts/)
-- [forklift oil change](https://food.allwomenstalk.com/guilt-free-recipes-you-will-not-be-able-to-resist/)
+- [7-up cupcakes](https://cooking.allwomenstalk.com/scrumptious-and-fabulous-grown-up-cupcakes/)
 - [cake to impress](https://cooking.allwomenstalk.com/spring-treats-to-impress-your-friends/)
+- [forklift oil change](https://food.allwomenstalk.com/guilt-free-recipes-you-will-not-be-able-to-resist/)
 - [egg-free cakes](https://cooking.allwomenstalk.com/awesome-egg-free-cakes/)
+- [easy small bite desserts](https://cooking.allwomenstalk.com/easy-bite-sized-summer-desserts/)
+- [betty crocker chocolate snack cake](https://food.allwomenstalk.com/snack-cake-recipes-to-try-at-home/)
 - [winter desserts](https://food.allwomenstalk.com/moan-inducing-winter-dessert-recipes-to-make/)
 - [mini desserts easy](https://cooking.allwomenstalk.com/easy-to-make-mini-desserts-your-guests-will-love/)
+- [decorating a cake ideas](https://cooking.allwomenstalk.com/fun-tips-for-fabulous-cake-decorating/)
 - [7 Best Homemade Holiday Treats ...](https://allwomenstalk.com/7-best-homemade-holiday-treats/)
 - [8 Mouth-Watering Valentines Day Treats to Make ...](https://allwomenstalk.com/8-mouth-watering-valentines-day-treats-to-make/)
 

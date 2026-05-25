@@ -46,16 +46,16 @@ Top Image Source: [craigclement.com](http://www.craigclement.com/?p=124)
 
 ## Related Posts
 
-- [15 dollarstore](https://money.allwomenstalk.com/things-you-should-buy-from-the-dollar-store/)
-- [what to do with old laptop](https://lifestyle.allwomenstalk.com/happy-homes-for-your-old-laptop/)
-- [finals week essentials](https://lifestyle.allwomenstalk.com/items-for-a-finals-week-survival-kit/)
-- [mustache bandage](https://lifestyle.allwomenstalk.com/must-have-mustache-items/)
-- [fashion flash sites](https://lifestyle.allwomenstalk.com/great-flash-sales-sites/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/girly-iphone-5-cases/)
 - [products that support a cause](https://lifestyle.allwomenstalk.com/products-for-a-cause/)
 - [gadget self defense](https://lifestyle.allwomenstalk.com/gadgets-for-self-defense/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/girly-iphone-5-cases/)
 - [popular clothing for teens](https://lifestyle.allwomenstalk.com/best-stores-for-teens/)
+- [finals week essentials](https://lifestyle.allwomenstalk.com/items-for-a-finals-week-survival-kit/)
 - [peculiar wanderings etsy](https://lifestyle.allwomenstalk.com/etsy-buys-under-10-dollars/)
+- [what to do with old laptop](https://lifestyle.allwomenstalk.com/happy-homes-for-your-old-laptop/)
+- [mustache bandage](https://lifestyle.allwomenstalk.com/must-have-mustache-items/)
+- [15 dollarstore](https://money.allwomenstalk.com/things-you-should-buy-from-the-dollar-store/)
+- [fashion flash sites](https://lifestyle.allwomenstalk.com/great-flash-sales-sites/)
 - [10 Absolutely Essential Kitchen Items ...](https://cooking.allwomenstalk.com/absolutely-essential-kitchen-items/)
 - [7 Useful Small Appliances for the Kitchen ...](https://allwomenstalk.com/7-useful-small-appliances-for-the-kitchen/)
 

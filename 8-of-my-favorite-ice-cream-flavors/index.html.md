@@ -48,16 +48,16 @@ Top image source: [images.teamsugar.com](http://images.teamsugar.com/files/users
 
 ## Related Posts
 
+- [no bake chocolate desserts easy](https://baking.allwomenstalk.com/no-bake-chocolate-desserts/)
+- [nice muffin](https://cooking.allwomenstalk.com/most-marvellous-muffin-recipes/)
 - [8 Chocolate Desserts for Those on a Diet ...](https://diet.allwomenstalk.com/chocolate-desserts-for-those-on-a-diet/)
 - [which revision would make the instructions easier ...](https://cooking.allwomenstalk.com/unbelievable-uses-for-baking-supplies/)
-- [stuff to make with ice cream](https://food.allwomenstalk.com/delicious-things-you-could-do-with-vanilla-ice-cream/)
 - [chocolate chip cookies variations](https://cooking.allwomenstalk.com/top-chocolate-chip-cookie-recipes/)
-- [low fat desserts](https://diet.allwomenstalk.com/low-fat-dessert-recipes/)
-- [best diabetes desserts](https://cooking.allwomenstalk.com/top-desserts-for-diabetes/)
-- [nice muffin](https://cooking.allwomenstalk.com/most-marvellous-muffin-recipes/)
-- [no bake chocolate desserts easy](https://baking.allwomenstalk.com/no-bake-chocolate-desserts/)
-- [flavoured yoghurts](https://cooking.allwomenstalk.com/7-favourite-yoghurt-flavours/)
 - [steps to make hot chocolate](https://cooking.allwomenstalk.com/tips-for-delicious-home-made-hot-chocolate/)
+- [best diabetes desserts](https://cooking.allwomenstalk.com/top-desserts-for-diabetes/)
+- [low fat desserts](https://diet.allwomenstalk.com/low-fat-dessert-recipes/)
+- [flavoured yoghurts](https://cooking.allwomenstalk.com/7-favourite-yoghurt-flavours/)
+- [stuff to make with ice cream](https://food.allwomenstalk.com/delicious-things-you-could-do-with-vanilla-ice-cream/)
 - [8 Yummy Cookies That Warm My Heart ...](https://thecrepescafe.com/8-yummy-cookies-that-warm-my-heart/)
 - [10 Really Weird Ice Cream Flavours ...](https://cooking.allwomenstalk.com/10-really-weird-ice-cream-flavours/)
 

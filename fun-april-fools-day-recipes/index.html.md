@@ -83,15 +83,15 @@ If you have other creative and fun **April Fool's Day recipes** to add to our li
 ## Related Posts
 
 - [easy ways to cook meat](https://cooking.allwomenstalk.com/scrumptious-ways-to-cook-red-meat/)
-- [scrumptious steak](https://cooking.allwomenstalk.com/scrumptious-stir-fry-recipes/)
-- [hostess menu](https://food.allwomenstalk.com/top-menu-planning-tips-every-hostess-should-know/)
-- [non vegan water](https://cooking.allwomenstalk.com/great-vegan-recipes-for-non-vegans-to-try/)
 - [easy entre](https://food.allwomenstalk.com/delicious-and-easy-entrees/)
+- [i dont like vegetables](https://cooking.allwomenstalk.com/sneaky-recipes-for-kids-who-hate-vegetables/)
+- [hostess menu](https://food.allwomenstalk.com/top-menu-planning-tips-every-hostess-should-know/)
 - [recipes using lots of vegetables](https://cooking.allwomenstalk.com/extraordinary-vegetable-recipes/)
 - [scrumptious in spanish](https://allwomenstalk.com/wonderfully-scrumptious-spanish-cooking-blogs/)
+- [non vegan water](https://cooking.allwomenstalk.com/great-vegan-recipes-for-non-vegans-to-try/)
 - [blog english moroccan](https://allwomenstalk.com/wonderfully-mouthwatering-moroccan-food-blogs/)
+- [scrumptious steak](https://cooking.allwomenstalk.com/scrumptious-stir-fry-recipes/)
 - [baked potato fillers](https://cooking.allwomenstalk.com/fantastic-fillings-for-jacket-potatoes/)
-- [i dont like vegetables](https://cooking.allwomenstalk.com/sneaky-recipes-for-kids-who-hate-vegetables/)
 - [7 Cool Recipes to Try ...](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)
 - [8 Delightfully Tasty Gluten Free Recipes ...](https://cooking.allwomenstalk.com/delightfully-tasty-gluten-free-recipes/)
 
