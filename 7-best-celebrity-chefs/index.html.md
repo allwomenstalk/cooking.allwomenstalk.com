@@ -44,16 +44,16 @@ Top Photo Credit: [Taking5](https://www.flickr.com/photos/taking5/4103489450/)
 
 ## Related Posts
 
-- [female celebrity smokers uk](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
-- [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
-- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
-- [smoking cigarette quotes](https://celebs.allwomenstalk.com/celebrity-smoking-quotes/)
 - [jenna fischer coconut water](https://celebs.allwomenstalk.com/most-recent-celebrity-moms/)
 - [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 - [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
-- [philantrophists](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
+- [female celebrity smokers uk](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
+- [smoking cigarette quotes](https://celebs.allwomenstalk.com/celebrity-smoking-quotes/)
+- [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
+- [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
 - [soulmte](https://celebs.allwomenstalk.com/sexiest-athletes-of/)
 - [celebrity marriage proposals](https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/)
+- [philantrophists](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [7 Cool Recipes to Try ...](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)
 - [7 Most Delicious World Cuisines ...](https://allwomenstalk.com/7-most-delicious-world-cuisines/)
 

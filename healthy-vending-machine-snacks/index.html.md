@@ -48,16 +48,16 @@ Top Photo Credit: [Fatty Tuna](https://www.flickr.com/photos/fattytuna/489276753
 
 ## Related Posts
 
-- [7 Fast Foods to Avoid Altogether ...](https://diet.allwomenstalk.com/fast-foods-to-avoid-altogether/)
+- [Top 7 Snacks for Children ...](https://cooking.allwomenstalk.com/top-7-snacks-for-children/)
 - [foods most people dont like](https://cooking.allwomenstalk.com/foods-we-hate-but-shouldnt/)
-- [healthy alternative meals](https://diet.allwomenstalk.com/healthy-and-diet-friendly-alternatives-to-your-favorite-comfort-foods/)
-- [Top 10 Foods with Antioxidants ...](https://diet.allwomenstalk.com/top-foods-with-antioxidants/)
+- [8 Foods That Fight Pain ...](https://cooking.allwomenstalk.com/foods-that-fight-pain/)
 - [8 Best Organic Foods to Buy ...](https://food.allwomenstalk.com/best-organic-foods-to-buy/)
 - [natural anti inflammatory foods](https://cooking.allwomenstalk.com/delicious-natural-anti-inflammatory-foods/)
-- [8 Food Additvies to Steer Clear of ...](https://diet.allwomenstalk.com/food-additvies-to-steer-clear-of/)
-- [8 Foods That Fight Pain ...](https://cooking.allwomenstalk.com/foods-that-fight-pain/)
+- [Top 10 Foods with Antioxidants ...](https://diet.allwomenstalk.com/top-foods-with-antioxidants/)
 - [10 Healthy Diet Foods for Fall ...](https://diet.allwomenstalk.com/healthy-diet-foods-for-fall/)
-- [Top 7 Snacks for Children ...](https://cooking.allwomenstalk.com/top-7-snacks-for-children/)
+- [7 Fast Foods to Avoid Altogether ...](https://diet.allwomenstalk.com/fast-foods-to-avoid-altogether/)
+- [8 Food Additvies to Steer Clear of ...](https://diet.allwomenstalk.com/food-additvies-to-steer-clear-of/)
+- [healthy alternative meals](https://diet.allwomenstalk.com/healthy-and-diet-friendly-alternatives-to-your-favorite-comfort-foods/)
 - [8 Delicious Must-Have Movie Snacks ...](https://movies.allwomenstalk.com/delicious-must-have-movie-snacks/)
 - [8 Great Summer Diet Snack Foods ...](https://diet.allwomenstalk.com/great-summer-diet-snack-foods/)
 

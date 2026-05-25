@@ -56,16 +56,16 @@ Top Photo Credit: [e-wander](https://www.flickr.com/photos/e-wander/4142953701/s
 
 ## Related Posts
 
-- [5 Tips on Having a Bird Feeder ...](https://gardening.allwomenstalk.com/5-tips-on-having-a-bird-feeder/)
-- [10 Tips for Setting a Lovely Table ...](https://cooking.allwomenstalk.com/tips-for-setting-a-lovely-table/)
+- [chasing bugs](https://gardening.allwomenstalk.com/5-tips-on-chasing-bugs-away/)
+- [bbq for beginners](https://cooking.allwomenstalk.com/tips-for-the-barbecue-beginner/)
 - [5 Tips on Raising Ducks ...](https://gardening.allwomenstalk.com/5-tips-on-raising-ducks/)
 - [last minute dinner ideas for company](https://cooking.allwomenstalk.com/7-tips-for-throwing-a-dinner-party-at-the-last-minute/)
-- [5 Tips on Getting Misteltoe ...](https://gardening.allwomenstalk.com/5-tips-on-getting-misteltoe/)
-- [5 Tips on Making the Right Pumpkin ...](https://gardening.allwomenstalk.com/5-tips-on-making-the-right-pumpkin/)
-- [chasing bugs](https://gardening.allwomenstalk.com/5-tips-on-chasing-bugs-away/)
 - [photographing butterflies](https://gardening.allwomenstalk.com/5-tips-on-photographing-butterflies/)
-- [bbq for beginners](https://cooking.allwomenstalk.com/tips-for-the-barbecue-beginner/)
+- [5 Tips on Having a Bird Feeder ...](https://gardening.allwomenstalk.com/5-tips-on-having-a-bird-feeder/)
+- [10 Tips for Setting a Lovely Table ...](https://cooking.allwomenstalk.com/tips-for-setting-a-lovely-table/)
+- [5 Tips on Making the Right Pumpkin ...](https://gardening.allwomenstalk.com/5-tips-on-making-the-right-pumpkin/)
 - [care for koi](https://gardening.allwomenstalk.com/5-tips-on-caring-for-koi/)
+- [5 Tips on Getting Misteltoe ...](https://gardening.allwomenstalk.com/5-tips-on-getting-misteltoe/)
 - [10 Thrifty Food Tips ...](https://cooking.allwomenstalk.com/thrifty-food-tips/)
 - [7 Things to Remember about Serving Sizes ...](https://diet.allwomenstalk.com/things-to-remember-about-serving-sizes/)
 

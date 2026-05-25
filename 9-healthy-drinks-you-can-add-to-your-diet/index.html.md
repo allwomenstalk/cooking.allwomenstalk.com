@@ -60,16 +60,16 @@ Top image source: [s3prod.weheartit.netdna-cdn.com](https://goo.gl/uyImL1)
 
 ## Related Posts
 
-- [pulse and cocktail hull](https://cooking.allwomenstalk.com/steps-to-a-delicious-home-made-daiquiri/)
-- [delicious fruit smoothie](https://food.allwomenstalk.com/delicious-fruit-smoothie-recipes/)
 - [spice up hot chocolate](https://cooking.allwomenstalk.com/quick-ways-to-jazz-up-hot-chocolate/)
 - [low calorie hot alcoholic drinks](https://food.allwomenstalk.com/surprisingly-healthy-cocktails-to-sip-on-this-winter/)
-- [funny bloody mary quotes](https://food.allwomenstalk.com/chillingly-spooky-but-outrageously-fabulous-cocktail-recipes/)
-- [hot toddy for sleep](https://cooking.allwomenstalk.com/best-hot-drinks-for-bedtime/)
-- [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
-- [simply spritzer](https://cooking.allwomenstalk.com/cool-summer-wine-spritzer-recipes-to-try/)
 - [7 Steps to a Delicious Iced Coffee ...](https://cooking.allwomenstalk.com/steps-to-a-delicious-iced-coffee/)
+- [pulse and cocktail hull](https://cooking.allwomenstalk.com/steps-to-a-delicious-home-made-daiquiri/)
 - [sensationally delicious](https://food.allwomenstalk.com/fab-delicious-party-cocktail-recipes/)
+- [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
+- [hot toddy for sleep](https://cooking.allwomenstalk.com/best-hot-drinks-for-bedtime/)
+- [simply spritzer](https://cooking.allwomenstalk.com/cool-summer-wine-spritzer-recipes-to-try/)
+- [funny bloody mary quotes](https://food.allwomenstalk.com/chillingly-spooky-but-outrageously-fabulous-cocktail-recipes/)
+- [delicious fruit smoothie](https://food.allwomenstalk.com/delicious-fruit-smoothie-recipes/)
 - [9 Best Energy Drinks ...](https://weightloss.allwomenstalk.com/best-energy-drinks/)
 - [20 Best Weight Loss Drinks to Try ...](https://weightloss.allwomenstalk.com/best-weight-loss-drinks-to-try/)
 

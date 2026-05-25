@@ -44,16 +44,16 @@ Top Photo Credit: [gLiTTeRb☺i®](https://www.flickr.com/photos/glitterboi/3382
 
 ## Related Posts
 
-- [lightest cheese](https://food.allwomenstalk.com/unbelievably-light-and-scrumptiously-healthy-types-of-cheese/)
-- [yummy frozen food](https://food.allwomenstalk.com/amazingly-yummy-and-healthy-frozen-foods/)
 - [blueberries or blackberries healthier](https://food.allwomenstalk.com/wonderfully-healthy-berries-to-introduce-to-your-diet/)
-- [7 Healthy Snacks to Have before Dinner ...](https://diet.allwomenstalk.com/healthy-snacks-to-have-before-dinner/)
-- [20 Healthiest Diet Foods for You ...](https://eatial.com/healthiest-diet-foods-for-you/)
 - [spicy food to eat](https://cooking.allwomenstalk.com/top-8-spicy-food-you-can-eat/)
-- [7 Healthy Salads to Eat Daily ...](https://diet.allwomenstalk.com/healthy-salads-to-eat-daily/)
-- [superfood synergy](https://diet.allwomenstalk.com/super-food-synergy-secrets/)
-- [gift for a health nut](https://food.allwomenstalk.com/delicious-dishes-for-the-wannabe-health-nut/)
 - [7 Healthy Snacks That Are Not so Healthy ...](https://diet.allwomenstalk.com/7-healthy-snacks-that-are-not-so-healthy/)
+- [lightest cheese](https://food.allwomenstalk.com/unbelievably-light-and-scrumptiously-healthy-types-of-cheese/)
+- [superfood synergy](https://diet.allwomenstalk.com/super-food-synergy-secrets/)
+- [7 Healthy Salads to Eat Daily ...](https://diet.allwomenstalk.com/healthy-salads-to-eat-daily/)
+- [gift for a health nut](https://food.allwomenstalk.com/delicious-dishes-for-the-wannabe-health-nut/)
+- [20 Healthiest Diet Foods for You ...](https://eatial.com/healthiest-diet-foods-for-you/)
+- [yummy frozen food](https://food.allwomenstalk.com/amazingly-yummy-and-healthy-frozen-foods/)
+- [7 Healthy Snacks to Have before Dinner ...](https://diet.allwomenstalk.com/healthy-snacks-to-have-before-dinner/)
 - [7 Foods That You Didnt Realize Go Together ...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
 - [7 Winter Goodies You Must Try ...](https://allwomenstalk.com/7-winter-goodies-you-must-try/)
 

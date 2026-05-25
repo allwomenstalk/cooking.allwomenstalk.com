@@ -44,15 +44,15 @@ Top Photo Credit: [comedy_nose](https://www.flickr.com/photos/comedynose/4727810
 
 ## Related Posts
 
-- [8 Favorite Summer Drinks and the Things You Should...](https://health.allwomenstalk.com/favorite-summer-drinks-and-the-things-you-should-know-about-them/)
 - [pulse and cocktail hull](https://cooking.allwomenstalk.com/steps-to-a-delicious-home-made-daiquiri/)
-- [tomato juice healthy](https://food.allwomenstalk.com/top-beverages-to-help-you-keep-a-healthy-heart/)
 - [hot toddy for sleep](https://cooking.allwomenstalk.com/best-hot-drinks-for-bedtime/)
-- [sensationally delicious](https://food.allwomenstalk.com/fab-delicious-party-cocktail-recipes/)
-- [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
-- [juice blends](https://cooking.allwomenstalk.com/8-fabulous-juice-blends/)
 - [delicious fruit smoothie](https://food.allwomenstalk.com/delicious-fruit-smoothie-recipes/)
+- [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
 - [simply spritzer](https://cooking.allwomenstalk.com/cool-summer-wine-spritzer-recipes-to-try/)
+- [tomato juice healthy](https://food.allwomenstalk.com/top-beverages-to-help-you-keep-a-healthy-heart/)
+- [juice blends](https://cooking.allwomenstalk.com/8-fabulous-juice-blends/)
+- [8 Favorite Summer Drinks and the Things You Should...](https://health.allwomenstalk.com/favorite-summer-drinks-and-the-things-you-should-know-about-them/)
+- [sensationally delicious](https://food.allwomenstalk.com/fab-delicious-party-cocktail-recipes/)
 - [funny bloody mary quotes](https://food.allwomenstalk.com/chillingly-spooky-but-outrageously-fabulous-cocktail-recipes/)
 - [7 Tips for Great Home-Made Ice Cream ...](https://thecrepescafe.com/tips-for-great-home-made-ice-cream/)
 - [7 Tips for Delicious Home-Made Hot Chocolate ...](https://cooking.allwomenstalk.com/tips-for-delicious-home-made-hot-chocolate/)

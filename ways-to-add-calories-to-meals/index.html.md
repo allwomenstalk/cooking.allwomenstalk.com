@@ -49,15 +49,15 @@ Top Photo Credit: [billbrady.wordpress.com](https://billbrady.wordpress.com/2010
 ## Related Posts
 
 - [7 Ways to Control Your Cravings ...](https://cooking.allwomenstalk.com/7-ways-to-control-your-cravings/)
-- [8 Ways to Increase Intake of Healthy and Natural F...](https://health.allwomenstalk.com/ways-to-increase-intake-of-healthy-and-natural-food/)
-- [thanksgiving dinner calories](https://food.allwomenstalk.com/incredibly-effective-ways-to-cut-800-calories-from-scrumptious-thanksgiving-dinner/)
 - [13 Ways to Eat Better in the New Year](https://diet.allwomenstalk.com/ways-to-eat-better-in-the-new-year/)
-- [7 Unhealthy Habits and How to Stop Them ...](https://health.allwomenstalk.com/unhealthy-habits-and-how-to-stop-them/)
+- [7 Tips for Avoiding Diabetes ...](https://health.allwomenstalk.com/7-tips-for-avoiding-diabetes/)
+- [thanksgiving dinner calories](https://food.allwomenstalk.com/incredibly-effective-ways-to-cut-800-calories-from-scrumptious-thanksgiving-dinner/)
 - [7 Ways to Keep Your Heart Healthy ...](https://health.allwomenstalk.com/7-ways-to-keep-your-heart-healthy/)
+- [8 Ways to Increase Intake of Healthy and Natural F...](https://health.allwomenstalk.com/ways-to-increase-intake-of-healthy-and-natural-food/)
 - [7 Tips for a Healthy Menopause Diet ...](https://health.allwomenstalk.com/tips-for-a-healthy-menopause-diet/)
 - [7 Inexpensive Tips to Improve Your Diet ...](https://diet.allwomenstalk.com/inexpensive-tips-to-improve-your-diet/)
+- [7 Unhealthy Habits and How to Stop Them ...](https://health.allwomenstalk.com/unhealthy-habits-and-how-to-stop-them/)
 - [8 Tips on How to Eat More to Gain Weight ...](https://health.allwomenstalk.com/tips-on-how-to-eat-more-to-gain-weight/)
-- [7 Tips for Avoiding Diabetes ...](https://health.allwomenstalk.com/7-tips-for-avoiding-diabetes/)
 - [8 Tips for Counting Calories ...](https://weightloss.allwomenstalk.com/tips-for-counting-calories/)
 - [8 Ways to save Money on Food ...](https://money.allwomenstalk.com/ways-to-save-money-on-food/)
 

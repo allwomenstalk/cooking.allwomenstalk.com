@@ -45,15 +45,15 @@ Top image source: [media.erincooks.com](http://media.erincooks.com/images/2009/1
 ## Related Posts
 
 - [chocolate chip cookies variations](https://cooking.allwomenstalk.com/top-chocolate-chip-cookie-recipes/)
-- [steps to make hot chocolate](https://cooking.allwomenstalk.com/tips-for-delicious-home-made-hot-chocolate/)
-- [stuff to make with ice cream](https://food.allwomenstalk.com/delicious-things-you-could-do-with-vanilla-ice-cream/)
-- [list of non chocolate candy](https://cooking.allwomenstalk.com/yummy-candies/)
-- [8 Chocolate Desserts for Those on a Diet ...](https://diet.allwomenstalk.com/chocolate-desserts-for-those-on-a-diet/)
-- [nice muffin](https://cooking.allwomenstalk.com/most-marvellous-muffin-recipes/)
-- [low fat desserts](https://diet.allwomenstalk.com/low-fat-dessert-recipes/)
-- [cakes for vegetarian](https://cooking.allwomenstalk.com/extraordinarily-yummy-vegan-cakes/)
-- [no bake chocolate desserts easy](https://baking.allwomenstalk.com/no-bake-chocolate-desserts/)
 - [which revision would make the instructions easier ...](https://cooking.allwomenstalk.com/unbelievable-uses-for-baking-supplies/)
+- [list of non chocolate candy](https://cooking.allwomenstalk.com/yummy-candies/)
+- [nice muffin](https://cooking.allwomenstalk.com/most-marvellous-muffin-recipes/)
+- [cakes for vegetarian](https://cooking.allwomenstalk.com/extraordinarily-yummy-vegan-cakes/)
+- [8 Chocolate Desserts for Those on a Diet ...](https://diet.allwomenstalk.com/chocolate-desserts-for-those-on-a-diet/)
+- [no bake chocolate desserts easy](https://baking.allwomenstalk.com/no-bake-chocolate-desserts/)
+- [low fat desserts](https://diet.allwomenstalk.com/low-fat-dessert-recipes/)
+- [stuff to make with ice cream](https://food.allwomenstalk.com/delicious-things-you-could-do-with-vanilla-ice-cream/)
+- [steps to make hot chocolate](https://cooking.allwomenstalk.com/tips-for-delicious-home-made-hot-chocolate/)
 - [7 Best No Bake Desserts ...](https://cooking.allwomenstalk.com/best-no-bake-desserts/)
 - [7 Top Vegan Desserts ...](https://cooking.allwomenstalk.com/top-vegan-desserts/)
 
