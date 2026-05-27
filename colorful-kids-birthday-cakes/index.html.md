@@ -3,7 +3,7 @@ title: "8 Colorful Kids Birthday Cakes ..."
 description: "Balloon Cake; Butterfly Cake; Dragon Cake; Rainbow Doodle Cake; Snake Cake; More ..."
 url: "https://cooking.allwomenstalk.com/colorful-kids-birthday-cakes/"
 category: "cooking"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 8 Colorful Kids Birthday Cakes ...
@@ -76,14 +76,14 @@ Top Photo Credit: [CAKE Amsterdam - Cakes by ZOBOT](https://www.flickr.com/photo
 
 ## Related Posts
 
-- [decorating a cake ideas](https://cooking.allwomenstalk.com/fun-tips-for-fabulous-cake-decorating/)
-- [mini desserts easy](https://cooking.allwomenstalk.com/easy-to-make-mini-desserts-your-guests-will-love/)
+- [homemade turkey dog treats](https://lifestyle.allwomenstalk.com/homemade-dog-treats-to-make/)
 - [egg-free cakes](https://cooking.allwomenstalk.com/awesome-egg-free-cakes/)
 - [cake to impress](https://cooking.allwomenstalk.com/spring-treats-to-impress-your-friends/)
-- [homemade turkey dog treats](https://lifestyle.allwomenstalk.com/homemade-dog-treats-to-make/)
-- [easy small bite desserts](https://cooking.allwomenstalk.com/easy-bite-sized-summer-desserts/)
 - [7-up cupcakes](https://cooking.allwomenstalk.com/scrumptious-and-fabulous-grown-up-cupcakes/)
+- [easy small bite desserts](https://cooking.allwomenstalk.com/easy-bite-sized-summer-desserts/)
 - [jumpsuits at mr price](https://cooking.allwomenstalk.com/awesome-st-patricks-day-treats-to-make/)
+- [decorating a cake ideas](https://cooking.allwomenstalk.com/fun-tips-for-fabulous-cake-decorating/)
+- [mini desserts easy](https://cooking.allwomenstalk.com/easy-to-make-mini-desserts-your-guests-will-love/)
 - [most profitable desserts to sell](https://cooking.allwomenstalk.com/sweet-dessert-food-trends/)
 - [fruits recipes dessert](https://food.allwomenstalk.com/low-calorie-fruit-dessert-recipes/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)

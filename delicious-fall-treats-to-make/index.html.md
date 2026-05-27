@@ -3,7 +3,7 @@ title: "9 Delicious Fall Treats to Make ..."
 description: "Caramel Apples; Pumpkin Cheesecake; Apple Bread Pudding; Pumpkin Cookies; Spiced Upside-down Apple Bundt Cake; More ..."
 url: "https://cooking.allwomenstalk.com/delicious-fall-treats-to-make/"
 category: "cooking"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 9 Delicious Fall Treats to Make ...

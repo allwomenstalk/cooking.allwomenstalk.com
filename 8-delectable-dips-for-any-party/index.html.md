@@ -3,7 +3,7 @@ title: "8 Delectable Dips for Any Party ..."
 description: "Hot Artichoke Dip; Buffalo Chicken Wings Dip; Cucumber Dip (Tzatziki); Spicy Avocado Dip; Crab and Shrimp Dip; More ..."
 url: "https://cooking.allwomenstalk.com/8-delectable-dips-for-any-party/"
 category: "cooking"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 8 Delectable Dips for Any Party ...

@@ -3,7 +3,7 @@ title: "9 Healthy Drinks You Can Add to Your Diet ..."
 description: "Vegetable Juices; Fruit Smoothies; Espresso; Green Tea; Skim Milk; More ..."
 url: "https://cooking.allwomenstalk.com/9-healthy-drinks-you-can-add-to-your-diet/"
 category: "cooking"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 9 Healthy Drinks You Can Add to Your Diet ...
@@ -61,15 +61,15 @@ Top image source: [s3prod.weheartit.netdna-cdn.com](https://goo.gl/uyImL1)
 ## Related Posts
 
 - [sensationally delicious](https://food.allwomenstalk.com/fab-delicious-party-cocktail-recipes/)
-- [hot toddy for sleep](https://cooking.allwomenstalk.com/best-hot-drinks-for-bedtime/)
 - [pulse and cocktail hull](https://cooking.allwomenstalk.com/steps-to-a-delicious-home-made-daiquiri/)
-- [7 Steps to a Delicious Iced Coffee ...](https://cooking.allwomenstalk.com/steps-to-a-delicious-iced-coffee/)
-- [delicious fruit smoothie](https://food.allwomenstalk.com/delicious-fruit-smoothie-recipes/)
 - [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
+- [funny bloody mary quotes](https://food.allwomenstalk.com/chillingly-spooky-but-outrageously-fabulous-cocktail-recipes/)
+- [delicious fruit smoothie](https://food.allwomenstalk.com/delicious-fruit-smoothie-recipes/)
+- [7 Steps to a Delicious Iced Coffee ...](https://cooking.allwomenstalk.com/steps-to-a-delicious-iced-coffee/)
 - [low calorie hot alcoholic drinks](https://food.allwomenstalk.com/surprisingly-healthy-cocktails-to-sip-on-this-winter/)
 - [spice up hot chocolate](https://cooking.allwomenstalk.com/quick-ways-to-jazz-up-hot-chocolate/)
-- [funny bloody mary quotes](https://food.allwomenstalk.com/chillingly-spooky-but-outrageously-fabulous-cocktail-recipes/)
 - [simply spritzer](https://cooking.allwomenstalk.com/cool-summer-wine-spritzer-recipes-to-try/)
+- [hot toddy for sleep](https://cooking.allwomenstalk.com/best-hot-drinks-for-bedtime/)
 - [9 Best Energy Drinks ...](https://weightloss.allwomenstalk.com/best-energy-drinks/)
 - [20 Best Weight Loss Drinks to Try ...](https://weightloss.allwomenstalk.com/best-weight-loss-drinks-to-try/)
 
