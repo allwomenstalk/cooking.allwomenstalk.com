@@ -3,7 +3,7 @@ title: "10 Scrumptious and Fabulous Grown-up Cupcakes ..."
 description: "Southern Comfort Cupcakes; White Russian Cupcake; Irish Bomb Cupcakes; Bourbon Brown Sugar Cupcakes; Chocolate & Goat Cheese Cupcakes; More ..."
 url: "https://cooking.allwomenstalk.com/scrumptious-and-fabulous-grown-up-cupcakes/"
 category: "cooking"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 10 Scrumptious and Fabulous Grown\-up Cupcakes ...
@@ -96,15 +96,15 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/25193943)
 
 ## Related Posts
 
-- [cake to impress](https://cooking.allwomenstalk.com/spring-treats-to-impress-your-friends/)
-- [egg-free cakes](https://cooking.allwomenstalk.com/awesome-egg-free-cakes/)
-- [mini desserts easy](https://cooking.allwomenstalk.com/easy-to-make-mini-desserts-your-guests-will-love/)
 - [decorating a cake ideas](https://cooking.allwomenstalk.com/fun-tips-for-fabulous-cake-decorating/)
-- [easy small bite desserts](https://cooking.allwomenstalk.com/easy-bite-sized-summer-desserts/)
-- [homemade turkey dog treats](https://lifestyle.allwomenstalk.com/homemade-dog-treats-to-make/)
+- [mini desserts easy](https://cooking.allwomenstalk.com/easy-to-make-mini-desserts-your-guests-will-love/)
 - [forklift oil change](https://food.allwomenstalk.com/guilt-free-recipes-you-will-not-be-able-to-resist/)
-- [peppermint recipes](https://cooking.allwomenstalk.com/sweet-peppermint-recipes-to-try/)
+- [egg-free cakes](https://cooking.allwomenstalk.com/awesome-egg-free-cakes/)
+- [easy small bite desserts](https://cooking.allwomenstalk.com/easy-bite-sized-summer-desserts/)
 - [betty crocker chocolate snack cake](https://food.allwomenstalk.com/snack-cake-recipes-to-try-at-home/)
+- [peppermint recipes](https://cooking.allwomenstalk.com/sweet-peppermint-recipes-to-try/)
+- [cake to impress](https://cooking.allwomenstalk.com/spring-treats-to-impress-your-friends/)
+- [homemade turkey dog treats](https://lifestyle.allwomenstalk.com/homemade-dog-treats-to-make/)
 - [winter desserts](https://food.allwomenstalk.com/moan-inducing-winter-dessert-recipes-to-make/)
 - [4 Delicious Cupcakes for Your Wedding ...](https://baking.allwomenstalk.com/4-delicious-cupcakes-for-your-wedding/)
 - [8 Incredibly Cute Cupcake Recipes ...](https://thecrepescafe.com/incredibly-cute-cupcake-recipes/)

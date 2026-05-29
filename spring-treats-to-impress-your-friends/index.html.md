@@ -3,7 +3,7 @@ title: "10 Spring Treats to Impress Your Friends ..."
 description: "Lemon Cake Pops; 1-2-3-4 Lemon Cake; Rhubarb Upside-down Cake; Pink Meringue Cupcakes with Raspberry Curd; Lemon-Thyme Pound Cake; More ..."
 url: "https://cooking.allwomenstalk.com/spring-treats-to-impress-your-friends/"
 category: "cooking"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 10 Spring Treats to Impress Your Friends ...
@@ -333,16 +333,16 @@ Top [pinterest.com](https://www.pinterest.com/pin/160651911677736403/)
 
 ## Related Posts
 
-- [easy small bite desserts](https://cooking.allwomenstalk.com/easy-bite-sized-summer-desserts/)
-- [peppermint recipes](https://cooking.allwomenstalk.com/sweet-peppermint-recipes-to-try/)
-- [bacon desert](https://food.allwomenstalk.com/daring-desserts-with-bacon/)
-- [winter desserts](https://food.allwomenstalk.com/moan-inducing-winter-dessert-recipes-to-make/)
-- [forklift oil change](https://food.allwomenstalk.com/guilt-free-recipes-you-will-not-be-able-to-resist/)
-- [betty crocker chocolate snack cake](https://food.allwomenstalk.com/snack-cake-recipes-to-try-at-home/)
-- [egg-free cakes](https://cooking.allwomenstalk.com/awesome-egg-free-cakes/)
-- [homemade turkey dog treats](https://lifestyle.allwomenstalk.com/homemade-dog-treats-to-make/)
-- [mini desserts easy](https://cooking.allwomenstalk.com/easy-to-make-mini-desserts-your-guests-will-love/)
 - [decorating a cake ideas](https://cooking.allwomenstalk.com/fun-tips-for-fabulous-cake-decorating/)
+- [bacon desert](https://food.allwomenstalk.com/daring-desserts-with-bacon/)
+- [homemade turkey dog treats](https://lifestyle.allwomenstalk.com/homemade-dog-treats-to-make/)
+- [forklift oil change](https://food.allwomenstalk.com/guilt-free-recipes-you-will-not-be-able-to-resist/)
+- [peppermint recipes](https://cooking.allwomenstalk.com/sweet-peppermint-recipes-to-try/)
+- [winter desserts](https://food.allwomenstalk.com/moan-inducing-winter-dessert-recipes-to-make/)
+- [easy small bite desserts](https://cooking.allwomenstalk.com/easy-bite-sized-summer-desserts/)
+- [egg-free cakes](https://cooking.allwomenstalk.com/awesome-egg-free-cakes/)
+- [betty crocker chocolate snack cake](https://food.allwomenstalk.com/snack-cake-recipes-to-try-at-home/)
+- [mini desserts easy](https://cooking.allwomenstalk.com/easy-to-make-mini-desserts-your-guests-will-love/)
 - [8 Treats for Luscious Lips ...](https://makeup.allwomenstalk.com/treats-for-luscious-lips/)
 - [10 Quick Ways to Jazz up Hot Chocolate ...](https://cooking.allwomenstalk.com/quick-ways-to-jazz-up-hot-chocolate/)
 
