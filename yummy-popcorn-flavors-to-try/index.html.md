@@ -3,7 +3,7 @@ title: "7 Yummy Popcorn Flavors to Try ..."
 description: "Bacon and Cheese; Barbecue; Caramel with Pecans; Strawberry; Peanut Butter and Jelly; More ..."
 url: "https://cooking.allwomenstalk.com/yummy-popcorn-flavors-to-try/"
 category: "cooking"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Yummy Popcorn Flavors to Try ...

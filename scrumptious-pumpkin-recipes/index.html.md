@@ -3,7 +3,7 @@ title: "7 Scrumptious Pumpkin Recipes ..."
 description: "Pumpkin Soup; Pumpkin Curry with Chickpeas; Pumpkin Ravioli; Easy Pumpkin Cheesecake; Pumpkin Bread; More ..."
 url: "https://cooking.allwomenstalk.com/scrumptious-pumpkin-recipes/"
 category: "cooking"
-last_updated: "2026-05-29"
+last_updated: "2026-05-30"
 ---
 
 # 7 Scrumptious Pumpkin Recipes ...
