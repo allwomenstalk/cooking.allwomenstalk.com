@@ -3,7 +3,7 @@ title: "7 Variations on the Traditional Brownie Recipe ..."
 description: "Chocolate Chunk and Raspberry Brownies; Chocolate Coconut Brownies; White Chocolate, Cherry, and Almond Brownies; Peppermint Crisp Brownies; Peanut Butter and Chocolate Brownies; More ..."
 url: "https://cooking.allwomenstalk.com/7-variations-on-the-traditional-brownie-recipe/"
 category: "cooking"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Variations on the Traditional Brownie Recipe ...

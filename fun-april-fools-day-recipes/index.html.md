@@ -3,7 +3,7 @@ title: "8 Fun April Fools Day Recipes ..."
 description: "Corn-on-the-Cob Cupcakes; Fakin' and Eggs; Cheddar Chive and Bacon Cupfakes with Avocado Frosting; Meatloaf Cupcakes; Silly Cupcakes; More ..."
 url: "https://cooking.allwomenstalk.com/fun-april-fools-day-recipes/"
 category: "cooking"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Fun April Fools Day Recipes ...
@@ -83,15 +83,15 @@ If you have other creative and fun **April Fool's Day recipes** to add to our li
 ## Related Posts
 
 - [i dont like vegetables](https://cooking.allwomenstalk.com/sneaky-recipes-for-kids-who-hate-vegetables/)
-- [easy entre](https://food.allwomenstalk.com/delicious-and-easy-entrees/)
-- [hostess menu](https://food.allwomenstalk.com/top-menu-planning-tips-every-hostess-should-know/)
-- [scrumptious steak](https://cooking.allwomenstalk.com/scrumptious-stir-fry-recipes/)
-- [easy ways to cook meat](https://cooking.allwomenstalk.com/scrumptious-ways-to-cook-red-meat/)
 - [scrumptious in spanish](https://allwomenstalk.com/wonderfully-scrumptious-spanish-cooking-blogs/)
-- [non vegan water](https://cooking.allwomenstalk.com/great-vegan-recipes-for-non-vegans-to-try/)
+- [hostess menu](https://food.allwomenstalk.com/top-menu-planning-tips-every-hostess-should-know/)
 - [baked potato fillers](https://cooking.allwomenstalk.com/fantastic-fillings-for-jacket-potatoes/)
-- [blog english moroccan](https://allwomenstalk.com/wonderfully-mouthwatering-moroccan-food-blogs/)
 - [recipes using lots of vegetables](https://cooking.allwomenstalk.com/extraordinary-vegetable-recipes/)
+- [scrumptious steak](https://cooking.allwomenstalk.com/scrumptious-stir-fry-recipes/)
+- [non vegan water](https://cooking.allwomenstalk.com/great-vegan-recipes-for-non-vegans-to-try/)
+- [easy ways to cook meat](https://cooking.allwomenstalk.com/scrumptious-ways-to-cook-red-meat/)
+- [easy entre](https://food.allwomenstalk.com/delicious-and-easy-entrees/)
+- [blog english moroccan](https://allwomenstalk.com/wonderfully-mouthwatering-moroccan-food-blogs/)
 - [7 Cool Recipes to Try ...](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)
 - [8 Delightfully Tasty Gluten Free Recipes ...](https://cooking.allwomenstalk.com/delightfully-tasty-gluten-free-recipes/)
 

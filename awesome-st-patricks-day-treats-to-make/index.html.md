@@ -3,7 +3,7 @@ title: "10 Awesome St. Patricks Day Treats to Make ..."
 description: "Rainbow Pudding; Lucky Vanilla Cupcakes; Green Ice Cream Cupcakes; Marshmallow Kabobs; Beer Jello Shots; More ..."
 url: "https://cooking.allwomenstalk.com/awesome-st-patricks-day-treats-to-make/"
 category: "cooking"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 10 Awesome St. Patricks Day Treats to Make ...
@@ -64,16 +64,16 @@ For our readers who are kitchen goddesses, we'd love to know some of your **trus
 
 ## Related Posts
 
-- [egg-free cakes](https://cooking.allwomenstalk.com/awesome-egg-free-cakes/)
-- [easy small bite desserts](https://cooking.allwomenstalk.com/easy-bite-sized-summer-desserts/)
+- [forklift oil change](https://food.allwomenstalk.com/guilt-free-recipes-you-will-not-be-able-to-resist/)
 - [7-up cupcakes](https://cooking.allwomenstalk.com/scrumptious-and-fabulous-grown-up-cupcakes/)
-- [mini desserts easy](https://cooking.allwomenstalk.com/easy-to-make-mini-desserts-your-guests-will-love/)
-- [decorating a cake ideas](https://cooking.allwomenstalk.com/fun-tips-for-fabulous-cake-decorating/)
-- [winter desserts](https://food.allwomenstalk.com/moan-inducing-winter-dessert-recipes-to-make/)
 - [betty crocker chocolate snack cake](https://food.allwomenstalk.com/snack-cake-recipes-to-try-at-home/)
 - [cake to impress](https://cooking.allwomenstalk.com/spring-treats-to-impress-your-friends/)
+- [easy small bite desserts](https://cooking.allwomenstalk.com/easy-bite-sized-summer-desserts/)
 - [homemade turkey dog treats](https://lifestyle.allwomenstalk.com/homemade-dog-treats-to-make/)
-- [forklift oil change](https://food.allwomenstalk.com/guilt-free-recipes-you-will-not-be-able-to-resist/)
+- [winter desserts](https://food.allwomenstalk.com/moan-inducing-winter-dessert-recipes-to-make/)
+- [egg-free cakes](https://cooking.allwomenstalk.com/awesome-egg-free-cakes/)
+- [decorating a cake ideas](https://cooking.allwomenstalk.com/fun-tips-for-fabulous-cake-decorating/)
+- [mini desserts easy](https://cooking.allwomenstalk.com/easy-to-make-mini-desserts-your-guests-will-love/)
 - [7 Best Homemade Holiday Treats ...](https://allwomenstalk.com/7-best-homemade-holiday-treats/)
 - [8 Mouth-Watering Valentines Day Treats to Make ...](https://allwomenstalk.com/8-mouth-watering-valentines-day-treats-to-make/)
 
