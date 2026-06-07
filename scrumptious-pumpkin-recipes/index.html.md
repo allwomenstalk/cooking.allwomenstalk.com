@@ -3,7 +3,7 @@ title: "7 Scrumptious Pumpkin Recipes ..."
 description: "Pumpkin Soup; Pumpkin Curry with Chickpeas; Pumpkin Ravioli; Easy Pumpkin Cheesecake; Pumpkin Bread; More ..."
 url: "https://cooking.allwomenstalk.com/scrumptious-pumpkin-recipes/"
 category: "cooking"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Scrumptious Pumpkin Recipes ...
@@ -54,7 +54,7 @@ There are so many delicious pumpkin recipes that it was hard to pick out just a 
 - [7 Cool Recipes to Try ...](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)
 - [7 Great Cookie Recipes ...](https://thecrepescafe.com/great-cookie-recipes-2/)
 - [7 Best Cupcake Recipes ...](https://thecrepescafe.com/best-cupcake-recipes/)
-- [7 Charmingly Homemade  Scrumptiously Delicious Bre...](https://baking.allwomenstalk.com/charmingly-homemade-scrumptiously-delicious-bread-recipes/)
+- [7 Charmingly Homemade & Scrumptiously Delicious Br...](https://baking.allwomenstalk.com/charmingly-homemade-scrumptiously-delicious-bread-recipes/)
 - [7 Easy Scrumptious Pasta Recipes ...](https://food.allwomenstalk.com/easy-scrumptious-pasta-recipes/)
 - [7 Fun Halloween Party Foods ...](https://food.allwomenstalk.com/fun-halloween-party-foods/)
 - [7 Scrumptiously Yummy and Incredibly Unique Thanks...](https://thecrepescafe.com/yummy-and-unique-thanksgiving-desserts/)

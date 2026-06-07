@@ -1,12 +1,12 @@
 ---
-title: "7 Foods I Didnt Think Id like but do ..."
+title: "7 Foods I Didn't Think I'd like but do ..."
 description: "Calamari; Fried Pickles; Sushi; Smoked Salmon; Poached Eggs; More ..."
 url: "https://cooking.allwomenstalk.com/7-foods-i-didnt-think-id-like-but-do/"
 category: "cooking"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Foods I Didnt Think Id like but do ...
+# 7 Foods I Didn't Think I'd like but do ...
 
 I can sometimes be a picky eater. There are some things I can't fathom trying, because I just know in my heart I'll never like them. At least, that's the way I used to be, but I'm trying to get more adventurous. I want to try new and different foods, so I can really refine my palate. Some of the foods here aren't exactly new and different, but still, here are 7 foods I really didn't think I'd like, only to find out that I do!
 
@@ -44,17 +44,17 @@ Top Photo Credit: [gLiTTeRb☺i®](https://www.flickr.com/photos/glitterboi/3382
 
 ## Related Posts
 
-- [gift for a health nut](https://food.allwomenstalk.com/delicious-dishes-for-the-wannabe-health-nut/)
 - [7 Healthy Snacks to Have before Dinner ...](https://diet.allwomenstalk.com/healthy-snacks-to-have-before-dinner/)
 - [7 Healthy Salads to Eat Daily ...](https://diet.allwomenstalk.com/healthy-salads-to-eat-daily/)
-- [yummy frozen food](https://food.allwomenstalk.com/amazingly-yummy-and-healthy-frozen-foods/)
 - [spicy food to eat](https://cooking.allwomenstalk.com/top-8-spicy-food-you-can-eat/)
-- [lightest cheese](https://food.allwomenstalk.com/unbelievably-light-and-scrumptiously-healthy-types-of-cheese/)
-- [superfood synergy](https://diet.allwomenstalk.com/super-food-synergy-secrets/)
 - [20 Healthiest Diet Foods for You ...](https://eatial.com/healthiest-diet-foods-for-you/)
+- [superfood synergy](https://diet.allwomenstalk.com/super-food-synergy-secrets/)
+- [yummy frozen food](https://food.allwomenstalk.com/amazingly-yummy-and-healthy-frozen-foods/)
+- [gift for a health nut](https://food.allwomenstalk.com/delicious-dishes-for-the-wannabe-health-nut/)
 - [7 Healthy Snacks That Are Not so Healthy ...](https://diet.allwomenstalk.com/7-healthy-snacks-that-are-not-so-healthy/)
 - [blueberries or blackberries healthier](https://food.allwomenstalk.com/wonderfully-healthy-berries-to-introduce-to-your-diet/)
-- [7 Foods That You Didnt Realize Go Together ...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
+- [lightest cheese](https://food.allwomenstalk.com/unbelievably-light-and-scrumptiously-healthy-types-of-cheese/)
+- [7 Foods That You Didn't Realize Go Together ...](https://cooking.allwomenstalk.com/7-foods-that-you-didnt-realize-go-together/)
 - [7 Winter Goodies You Must Try ...](https://allwomenstalk.com/7-winter-goodies-you-must-try/)
 
 ## Site Information

@@ -3,7 +3,7 @@ title: "7 Top Vegan Desserts ..."
 description: "Chocolate Cake; Lemon Cake; Brownies; Banana Brûlée; Poached Peaches; More ..."
 url: "https://cooking.allwomenstalk.com/top-vegan-desserts/"
 category: "cooking"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Top Vegan Desserts ...

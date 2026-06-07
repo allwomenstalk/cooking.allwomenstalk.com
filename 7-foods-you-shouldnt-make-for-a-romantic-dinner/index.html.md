@@ -1,12 +1,12 @@
 ---
-title: "7 Foods You Shouldnt Make for a Romantic Dinner ..."
+title: "7 Foods You Shouldn't Make for a Romantic Dinner ..."
 description: "French Onion Soup; Garlic Heavy Pasta; Bone-in Meats; Fishy Fish; In-Shell Shellfish; More ..."
 url: "https://cooking.allwomenstalk.com/7-foods-you-shouldnt-make-for-a-romantic-dinner/"
 category: "cooking"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Foods You Shouldnt Make for a Romantic Dinner ...
+# 7 Foods You Shouldn't Make for a Romantic Dinner ...
 
 Cooking a romantic meal for someone you love is a great idea … but a lot of things can go wrong if you aren't careful. If you're cooking for a date or a partner, you want things to go off without a hitch – but there are lots of hidden hitches just waiting to spring up and smack you in the palate, as it were. Fortunately, if you can avoid certain foods you just shouldn't make for a romantic dinner, you should be good to go.
 
@@ -44,16 +44,16 @@ Top Photo Credit: [vsoriano@pacbell.net](https://www.flickr.com/photos/vsoriano/
 
 ## Related Posts
 
-- [healthtipstop](https://diet.allwomenstalk.com/most-useless-things-to-put-into-your-salad/)
-- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
-- [5 Thing Not to do in Your Garden ...](https://gardening.allwomenstalk.com/5-thing-not-to-do-in-your-garden/)
-- [jobs to avoid with copd](https://health.allwomenstalk.com/7-worst-jobs-for-the-health-of-your-lungs/)
-- [8 Habits That Are Bad for Your Heart ...](https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/)
 - [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
-- [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)
+- [5 Thing Not to do in Your Garden ...](https://gardening.allwomenstalk.com/5-thing-not-to-do-in-your-garden/)
+- [healthtipstop](https://diet.allwomenstalk.com/most-useless-things-to-put-into-your-salad/)
 - [10 Things That Are Ruining Your Smile ...](https://health.allwomenstalk.com/10-things-that-are-ruining-your-smile/)
-- [7 Things to Stop Doing Right Now ...](https://health.allwomenstalk.com/things-to-stop-doing-right-now/)
+- [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)
+- [8 Habits That Are Bad for Your Heart ...](https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/)
+- [jobs to avoid with copd](https://health.allwomenstalk.com/7-worst-jobs-for-the-health-of-your-lungs/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
+- [7 Things to Stop Doing Right Now ...](https://health.allwomenstalk.com/things-to-stop-doing-right-now/)
+- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
 - [8 Topics to Avoid on a First Date ...](https://allwomenstalk.com/8-topics-to-avoid-on-a-first-date/)
 - [8 Things Not to do at a Dinner Party ...](https://allwomenstalk.com/8-things-not-to-do-on-a-dinner-party/)
 
