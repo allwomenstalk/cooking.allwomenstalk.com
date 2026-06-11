@@ -3,7 +3,7 @@ title: "20+ Best Crockpot Chicken Recipes ..."
 description: "Slow Cooker Bacon Garlic Chicken Breast; Slow Cooker Chicken Fajita Bowls Recipe; Garlic Butter Chicken and Pasta; Easy Chicken Santa Fe; Crockpot Beer Braised Chicken; More ..."
 url: "https://cooking.allwomenstalk.com/best-crockpot-chicken-recipes/"
 category: "cooking"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 20+ Best Crockpot Chicken Recipes ...
@@ -194,16 +194,16 @@ Full recipe with direction on [Keyingredient](https://www.keyingredient.com/reci
 
 ## Related Posts
 
-- [single serve baked mac and cheese](https://food.allwomenstalk.com/best-mini-cocotte-recipes/)
-- [saurkraut meals](https://food.allwomenstalk.com/best-sauerkraut-recipes/)
-- [grilled shrimp and chorizo](https://allwomenstalk.com/grilled-shrimp-chorizo-appetizers-recipe/)
-- [ground sirloin recipes](https://food.allwomenstalk.com/best-ground-sirloin-recipes/)
-- [plated menus](https://food.allwomenstalk.com/best-plated-recipes/)
-- [bagel sandwich maker](https://food.allwomenstalk.com/best-breakfast-sandwich-maker-recipes/)
-- [healthy shaved steak recipes](https://food.allwomenstalk.com/best-recipes-with-shaved-steak/)
-- [lean meat for acid reflux](https://diet.allwomenstalk.com/best-gerd-recipes/)
-- [best asian fish recipes](https://food.allwomenstalk.com/best-asian-fish-recipes/)
 - [dessert](https://eatial.com/best-ellie-krieger-recipes/)
+- [bagel sandwich maker](https://food.allwomenstalk.com/best-breakfast-sandwich-maker-recipes/)
+- [grilled shrimp and chorizo](https://allwomenstalk.com/grilled-shrimp-chorizo-appetizers-recipe/)
+- [lean meat for acid reflux](https://diet.allwomenstalk.com/best-gerd-recipes/)
+- [saurkraut meals](https://food.allwomenstalk.com/best-sauerkraut-recipes/)
+- [ground sirloin recipes](https://food.allwomenstalk.com/best-ground-sirloin-recipes/)
+- [healthy shaved steak recipes](https://food.allwomenstalk.com/best-recipes-with-shaved-steak/)
+- [plated menus](https://food.allwomenstalk.com/best-plated-recipes/)
+- [single serve baked mac and cheese](https://food.allwomenstalk.com/best-mini-cocotte-recipes/)
+- [best asian fish recipes](https://food.allwomenstalk.com/best-asian-fish-recipes/)
 - [7 Tasty Slow-Cooker Recipes ...](https://cooking.allwomenstalk.com/tasty-slow-cooker-recipes/)
 - [7 Gratifyingly Easy & Delicious Crockpot Recipes ....](https://cooking.allwomenstalk.com/easy-delicious-crockpot-recipes/)
 

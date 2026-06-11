@@ -3,7 +3,7 @@ title: "7 Recipes for Home-Made Dog Treats ..."
 description: "Classic Dog Crunchies; Doggie Veggie Crisps; Honey Dog Chomps; Beefy Bites; Bran Biccies; More ..."
 url: "https://cooking.allwomenstalk.com/recipes-for-home-made-dog-treats/"
 category: "cooking"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Recipes for Home\-Made Dog Treats ...

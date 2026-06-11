@@ -3,7 +3,7 @@ title: "7 Tasty Slow-Cooker Recipes ..."
 description: "Jimmy Fallon's Crock-Pot Chili: Famous Slow-Cooker Recipes...; Burgundy Beef Stew: Heart Warming Slower-Cooker Recipes...; Chicken Noodle Soup: Creamy Slow-Cooker Recipes...; Bean and Rice Stuffed Peppers: Colorful Slow-Cooker Recipes...; Southern Pulled Pork: Sandwich Slow-Cooker Recipes...; More ..."
 url: "https://cooking.allwomenstalk.com/tasty-slow-cooker-recipes/"
 category: "cooking"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 7 Tasty Slow\-Cooker Recipes ...
