@@ -94,16 +94,16 @@ As you can see, making your own** DIY cake stand** will only require a base, som
 
 ## Related Posts
 
-- [pretty craft.com](https://lifestyle.allwomenstalk.com/cute-craft-room-decor-ideas/)
-- [yardstick images](https://lifestyle.allwomenstalk.com/diy-yardstick-upcycling-projects-that-rule/)
-- [terry shower curtain](https://lifestyle.allwomenstalk.com/super-simple-diy-shower-curtains/)
+- [crafts from milk jugs](https://lifestyle.allwomenstalk.com/clever-milk-jug-diy-projects/)
 - [creative camping ideas](https://travel.allwomenstalk.com/fun-camping-diy-ideas/)
+- [yardstick images](https://lifestyle.allwomenstalk.com/diy-yardstick-upcycling-projects-that-rule/)
 - [diy picnic basket liner](https://lifestyle.allwomenstalk.com/perfect-diy-picnic-projects/)
+- [creative planters ideas](https://gardening.allwomenstalk.com/amazingly-creative-planters/)
 - [sage and rosemary for grey hair reviews](https://hair.allwomenstalk.com/recipes-for-homemade-natural-dye/)
+- [terry shower curtain](https://lifestyle.allwomenstalk.com/super-simple-diy-shower-curtains/)
+- [pretty craft.com](https://lifestyle.allwomenstalk.com/cute-craft-room-decor-ideas/)
 - [up cycled wine corks](https://lifestyle.allwomenstalk.com/winning-ways-to-upcycle-wine-corks/)
 - [burlap crafts ideas](https://lifestyle.allwomenstalk.com/beautiful-burlap-projects/)
-- [creative planters ideas](https://gardening.allwomenstalk.com/amazingly-creative-planters/)
-- [crafts from milk jugs](https://lifestyle.allwomenstalk.com/clever-milk-jug-diy-projects/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
 - [7 Cute Cupcake Decorations ...](https://cooking.allwomenstalk.com/7-cute-cupcake-decorations/)
 

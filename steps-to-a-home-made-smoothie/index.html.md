@@ -48,16 +48,16 @@ Top Photo Credit: [Nikki L.](https://www.flickr.com/photos/22865921@N07/30263649
 
 ## Related Posts
 
-- [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
 - [easter drinks for parties](https://cooking.allwomenstalk.com/7-delicious-easter-cocktails/)
-- [pulse and cocktail hull](https://cooking.allwomenstalk.com/steps-to-a-delicious-home-made-daiquiri/)
-- [spice up hot chocolate](https://cooking.allwomenstalk.com/quick-ways-to-jazz-up-hot-chocolate/)
-- [drinks that are healthy and taste good](https://cooking.allwomenstalk.com/9-healthy-drinks-you-can-add-to-your-diet/)
-- [weirdest vodka flavors](https://cooking.allwomenstalk.com/bizarre-beverages/)
-- [sensationally delicious](https://food.allwomenstalk.com/fab-delicious-party-cocktail-recipes/)
-- [low calorie hot alcoholic drinks](https://food.allwomenstalk.com/surprisingly-healthy-cocktails-to-sip-on-this-winter/)
 - [7 Steps to a Delicious Iced Coffee ...](https://cooking.allwomenstalk.com/steps-to-a-delicious-iced-coffee/)
+- [weirdest vodka flavors](https://cooking.allwomenstalk.com/bizarre-beverages/)
+- [drinks that are healthy and taste good](https://cooking.allwomenstalk.com/9-healthy-drinks-you-can-add-to-your-diet/)
+- [sensationally delicious](https://food.allwomenstalk.com/fab-delicious-party-cocktail-recipes/)
 - [best biggby iced coffee drinks](https://diet.allwomenstalk.com/low-calorie-coffee-drinks/)
+- [low calorie hot alcoholic drinks](https://food.allwomenstalk.com/surprisingly-healthy-cocktails-to-sip-on-this-winter/)
+- [spice up hot chocolate](https://cooking.allwomenstalk.com/quick-ways-to-jazz-up-hot-chocolate/)
+- [pulse and cocktail hull](https://cooking.allwomenstalk.com/steps-to-a-delicious-home-made-daiquiri/)
+- [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
 - [7 Delicious Fruit Smoothie Recipes ...](https://food.allwomenstalk.com/delicious-fruit-smoothie-recipes/)
 - [7 Ultra-Slimming Smoothies ...](https://allwomenstalk.com/7-ultra-slimming-smoothies/)
 

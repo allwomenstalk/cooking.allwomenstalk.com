@@ -44,14 +44,14 @@ Top Photo Credit: [comedy_nose](https://www.flickr.com/photos/comedynose/4727810
 
 ## Related Posts
 
-- [hot toddy for sleep](https://cooking.allwomenstalk.com/best-hot-drinks-for-bedtime/)
-- [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
 - [sensationally delicious](https://food.allwomenstalk.com/fab-delicious-party-cocktail-recipes/)
-- [simply spritzer](https://cooking.allwomenstalk.com/cool-summer-wine-spritzer-recipes-to-try/)
-- [juice blends](https://cooking.allwomenstalk.com/8-fabulous-juice-blends/)
-- [pulse and cocktail hull](https://cooking.allwomenstalk.com/steps-to-a-delicious-home-made-daiquiri/)
+- [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
 - [8 Favorite Summer Drinks (and the Things You Shoul...](https://health.allwomenstalk.com/favorite-summer-drinks-and-the-things-you-should-know-about-them/)
 - [funny bloody mary quotes](https://food.allwomenstalk.com/chillingly-spooky-but-outrageously-fabulous-cocktail-recipes/)
+- [pulse and cocktail hull](https://cooking.allwomenstalk.com/steps-to-a-delicious-home-made-daiquiri/)
+- [simply spritzer](https://cooking.allwomenstalk.com/cool-summer-wine-spritzer-recipes-to-try/)
+- [juice blends](https://cooking.allwomenstalk.com/8-fabulous-juice-blends/)
+- [hot toddy for sleep](https://cooking.allwomenstalk.com/best-hot-drinks-for-bedtime/)
 - [delicious fruit smoothie](https://food.allwomenstalk.com/delicious-fruit-smoothie-recipes/)
 - [tomato juice healthy](https://food.allwomenstalk.com/top-beverages-to-help-you-keep-a-healthy-heart/)
 - [7 Tips for Great Home-Made Ice Cream ...](https://thecrepescafe.com/tips-for-great-home-made-ice-cream/)

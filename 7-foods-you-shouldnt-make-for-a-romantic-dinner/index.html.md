@@ -44,15 +44,15 @@ Top Photo Credit: [vsoriano@pacbell.net](https://www.flickr.com/photos/vsoriano/
 
 ## Related Posts
 
-- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
 - [healthtipstop](https://diet.allwomenstalk.com/most-useless-things-to-put-into-your-salad/)
 - [stylo primped previous](https://hair.allwomenstalk.com/things-that-wont-help-grow-your-hair-faster/)
-- [10 Things That Are Ruining Your Smile ...](https://health.allwomenstalk.com/10-things-that-are-ruining-your-smile/)
+- [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)
 - [7 Things to Stop Doing Right Now ...](https://health.allwomenstalk.com/things-to-stop-doing-right-now/)
-- [5 Thing Not to do in Your Garden ...](https://gardening.allwomenstalk.com/5-thing-not-to-do-in-your-garden/)
 - [8 Habits That Are Bad for Your Heart ...](https://health.allwomenstalk.com/8-habits-that-are-bad-for-your-heart/)
 - [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/worst-interview-mistakes/)
-- [7 Things to Avoid when You Quit Smoking ...](https://health.allwomenstalk.com/7-things-to-avoid-when-you-quit-smoking/)
+- [5 Thing Not to do in Your Garden ...](https://gardening.allwomenstalk.com/5-thing-not-to-do-in-your-garden/)
+- [10 Things That Are Ruining Your Smile ...](https://health.allwomenstalk.com/10-things-that-are-ruining-your-smile/)
+- [7 Exercises to Avoid ...](https://fitene.com/exercises-to-avoid/)
 - [jobs to avoid with copd](https://health.allwomenstalk.com/7-worst-jobs-for-the-health-of-your-lungs/)
 - [8 Topics to Avoid on a First Date ...](https://allwomenstalk.com/8-topics-to-avoid-on-a-first-date/)
 - [8 Things Not to do at a Dinner Party ...](https://allwomenstalk.com/8-things-not-to-do-on-a-dinner-party/)

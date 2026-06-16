@@ -74,16 +74,16 @@ Now that you have decided which of the top 10 chocolate chip cookie recipe varia
 
 ## Related Posts
 
-- [which revision would make the instructions easier ...](https://cooking.allwomenstalk.com/unbelievable-uses-for-baking-supplies/)
 - [list of non chocolate candy](https://cooking.allwomenstalk.com/yummy-candies/)
-- [stuff to make with ice cream](https://food.allwomenstalk.com/delicious-things-you-could-do-with-vanilla-ice-cream/)
-- [pink heart measuring spoons](https://cooking.allwomenstalk.com/7-super-cute-baking-accessories/)
-- [steps to make hot chocolate](https://cooking.allwomenstalk.com/tips-for-delicious-home-made-hot-chocolate/)
-- [low fat desserts](https://diet.allwomenstalk.com/low-fat-dessert-recipes/)
 - [no bake chocolate desserts easy](https://baking.allwomenstalk.com/no-bake-chocolate-desserts/)
 - [cakes for vegetarian](https://cooking.allwomenstalk.com/extraordinarily-yummy-vegan-cakes/)
-- [nice muffin](https://cooking.allwomenstalk.com/most-marvellous-muffin-recipes/)
+- [pink heart measuring spoons](https://cooking.allwomenstalk.com/7-super-cute-baking-accessories/)
+- [stuff to make with ice cream](https://food.allwomenstalk.com/delicious-things-you-could-do-with-vanilla-ice-cream/)
+- [which revision would make the instructions easier ...](https://cooking.allwomenstalk.com/unbelievable-uses-for-baking-supplies/)
 - [8 Chocolate Desserts for Those on a Diet ...](https://diet.allwomenstalk.com/chocolate-desserts-for-those-on-a-diet/)
+- [low fat desserts](https://diet.allwomenstalk.com/low-fat-dessert-recipes/)
+- [steps to make hot chocolate](https://cooking.allwomenstalk.com/tips-for-delicious-home-made-hot-chocolate/)
+- [nice muffin](https://cooking.allwomenstalk.com/most-marvellous-muffin-recipes/)
 - [10 Hershey Chocolate Lover Recipes ...](https://cooking.allwomenstalk.com/10-hershey-chocolate-lover-recipes/)
 - [7 Easy Steps to Make Chocolate Chip Cookies ...](https://cooking.allwomenstalk.com/7-easy-steps-to-make-chocolate-chip-cookies/)
 

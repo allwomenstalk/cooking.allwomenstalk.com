@@ -54,14 +54,14 @@ Top Photo Credit: [Pink Sherbet Photography](https://web.archive.org/web/https:/
 
 - [simply spritzer](https://cooking.allwomenstalk.com/cool-summer-wine-spritzer-recipes-to-try/)
 - [funny bloody mary quotes](https://food.allwomenstalk.com/chillingly-spooky-but-outrageously-fabulous-cocktail-recipes/)
-- [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
+- [10 Simple but Surefire Tips for Responsible Drinki...](https://health.allwomenstalk.com/simple-but-surefire-tips-for-responsible-drinking-during-the-holiday-season/)
 - [hot toddy for sleep](https://cooking.allwomenstalk.com/best-hot-drinks-for-bedtime/)
-- [sensationally delicious](https://food.allwomenstalk.com/fab-delicious-party-cocktail-recipes/)
 - [juice blends](https://cooking.allwomenstalk.com/8-fabulous-juice-blends/)
 - [8 Favorite Summer Drinks (and the Things You Shoul...](https://health.allwomenstalk.com/favorite-summer-drinks-and-the-things-you-should-know-about-them/)
-- [tomato juice healthy](https://food.allwomenstalk.com/top-beverages-to-help-you-keep-a-healthy-heart/)
-- [10 Simple but Surefire Tips for Responsible Drinki...](https://health.allwomenstalk.com/simple-but-surefire-tips-for-responsible-drinking-during-the-holiday-season/)
+- [7 Tips for Making Sun Tea ...](https://cooking.allwomenstalk.com/tips-for-making-sun-tea/)
+- [sensationally delicious](https://food.allwomenstalk.com/fab-delicious-party-cocktail-recipes/)
 - [delicious fruit smoothie](https://food.allwomenstalk.com/delicious-fruit-smoothie-recipes/)
+- [tomato juice healthy](https://food.allwomenstalk.com/top-beverages-to-help-you-keep-a-healthy-heart/)
 - [7 Tips for Great Home-Made Ice Cream ...](https://thecrepescafe.com/tips-for-great-home-made-ice-cream/)
 - [7 Tips for Delicious Home-Made Hot Chocolate ...](https://cooking.allwomenstalk.com/tips-for-delicious-home-made-hot-chocolate/)
 

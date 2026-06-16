@@ -194,16 +194,16 @@ Full recipe with direction on [Keyingredient](https://www.keyingredient.com/reci
 
 ## Related Posts
 
+- [plated menus](https://food.allwomenstalk.com/best-plated-recipes/)
 - [ground sirloin recipes](https://food.allwomenstalk.com/best-ground-sirloin-recipes/)
 - [best asian fish recipes](https://food.allwomenstalk.com/best-asian-fish-recipes/)
 - [lean meat for acid reflux](https://diet.allwomenstalk.com/best-gerd-recipes/)
+- [healthy shaved steak recipes](https://food.allwomenstalk.com/best-recipes-with-shaved-steak/)
 - [bagel sandwich maker](https://food.allwomenstalk.com/best-breakfast-sandwich-maker-recipes/)
 - [grilled shrimp and chorizo](https://allwomenstalk.com/grilled-shrimp-chorizo-appetizers-recipe/)
 - [single serve baked mac and cheese](https://food.allwomenstalk.com/best-mini-cocotte-recipes/)
-- [dessert](https://eatial.com/best-ellie-krieger-recipes/)
-- [healthy shaved steak recipes](https://food.allwomenstalk.com/best-recipes-with-shaved-steak/)
-- [plated menus](https://food.allwomenstalk.com/best-plated-recipes/)
 - [saurkraut meals](https://food.allwomenstalk.com/best-sauerkraut-recipes/)
+- [dessert](https://eatial.com/best-ellie-krieger-recipes/)
 - [7 Tasty Slow-Cooker Recipes ...](https://cooking.allwomenstalk.com/tasty-slow-cooker-recipes/)
 - [7 Gratifyingly Easy & Delicious Crockpot Recipes ....](https://cooking.allwomenstalk.com/easy-delicious-crockpot-recipes/)
 

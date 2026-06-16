@@ -44,16 +44,16 @@ Top Photo Credit: [Taking5](https://www.flickr.com/photos/taking5/4103489450/)
 
 ## Related Posts
 
-- [smoking cigarette quotes](https://celebs.allwomenstalk.com/celebrity-smoking-quotes/)
-- [jenna fischer coconut water](https://celebs.allwomenstalk.com/most-recent-celebrity-moms/)
+- [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
 - [celebrity wedding favors](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
+- [philantrophists](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
+- [celebrity marriage proposals](https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/)
+- [soulmte](https://celebs.allwomenstalk.com/sexiest-athletes-of/)
+- [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
+- [jenna fischer coconut water](https://celebs.allwomenstalk.com/most-recent-celebrity-moms/)
+- [smoking cigarette quotes](https://celebs.allwomenstalk.com/celebrity-smoking-quotes/)
 - [female celebrity smokers uk](https://celebs.allwomenstalk.com/women-celebrities-who-smoke/)
 - [8 Celebrity Pictures to Enjoy Today ...](https://celebs.allwomenstalk.com/celebrity-pictures-to-enjoy-today/)
-- [7 Greatly Astonishing Celebrity Scandals ...](https://celebs.allwomenstalk.com/greatly-astonishing-celebrity-scandals/)
-- [down to earth actresses](https://celebs.allwomenstalk.com/most-down-to-earth-celebrities/)
-- [soulmte](https://celebs.allwomenstalk.com/sexiest-athletes-of/)
-- [celebrity marriage proposals](https://celebs.allwomenstalk.com/inspiring-and-sweet-celebrity-marriage-proposals/)
-- [philantrophists](https://celebs.allwomenstalk.com/top-celebrity-philantrophists/)
 - [7 Cool Recipes to Try ...](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)
 - [7 Most Delicious World Cuisines ...](https://allwomenstalk.com/7-most-delicious-world-cuisines/)
 
