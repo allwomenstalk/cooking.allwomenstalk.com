@@ -3,7 +3,7 @@ title: "8 Fun April Fool's Day Recipes ..."
 description: "Corn-on-the-Cob Cupcakes; Fakin' and Eggs; Cheddar Chive and Bacon Cupfakes with Avocado Frosting; Meatloaf Cupcakes; Silly Cupcakes; More ..."
 url: "https://cooking.allwomenstalk.com/fun-april-fools-day-recipes/"
 category: "cooking"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 8 Fun April Fool's Day Recipes ...
@@ -82,16 +82,16 @@ If you have other creative and fun **April Fool's Day recipes** to add to our li
 
 ## Related Posts
 
-- [baked potato fillers](https://cooking.allwomenstalk.com/fantastic-fillings-for-jacket-potatoes/)
-- [hostess menu](https://food.allwomenstalk.com/top-menu-planning-tips-every-hostess-should-know/)
 - [blog english moroccan](https://allwomenstalk.com/wonderfully-mouthwatering-moroccan-food-blogs/)
-- [scrumptious steak](https://cooking.allwomenstalk.com/scrumptious-stir-fry-recipes/)
-- [easy entre](https://food.allwomenstalk.com/delicious-and-easy-entrees/)
-- [scrumptious in spanish](https://allwomenstalk.com/wonderfully-scrumptious-spanish-cooking-blogs/)
 - [non vegan water](https://cooking.allwomenstalk.com/great-vegan-recipes-for-non-vegans-to-try/)
-- [easy ways to cook meat](https://cooking.allwomenstalk.com/scrumptious-ways-to-cook-red-meat/)
+- [hostess menu](https://food.allwomenstalk.com/top-menu-planning-tips-every-hostess-should-know/)
 - [recipes using lots of vegetables](https://cooking.allwomenstalk.com/extraordinary-vegetable-recipes/)
+- [easy entre](https://food.allwomenstalk.com/delicious-and-easy-entrees/)
 - [i don't like vegetables](https://cooking.allwomenstalk.com/sneaky-recipes-for-kids-who-hate-vegetables/)
+- [easy ways to cook meat](https://cooking.allwomenstalk.com/scrumptious-ways-to-cook-red-meat/)
+- [scrumptious in spanish](https://allwomenstalk.com/wonderfully-scrumptious-spanish-cooking-blogs/)
+- [baked potato fillers](https://cooking.allwomenstalk.com/fantastic-fillings-for-jacket-potatoes/)
+- [scrumptious steak](https://cooking.allwomenstalk.com/scrumptious-stir-fry-recipes/)
 - [7 Cool Recipes to Try ...](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)
 - [8 Delightfully Tasty Gluten Free Recipes ...](https://cooking.allwomenstalk.com/delightfully-tasty-gluten-free-recipes/)
 

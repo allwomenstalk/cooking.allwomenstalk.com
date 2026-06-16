@@ -3,7 +3,7 @@ title: "7 Spices for Indian Cooking ..."
 description: "Haldi (Turmeric); Dhania Powder (Coriander Powder); Mirchi Powder (Dried Red Chili Powder); Jeera or Jeera Powder (Cumin Seeds or Its Powder); Garam Masala (Mixture of Different Spices); More ..."
 url: "https://cooking.allwomenstalk.com/7-spices-for-indian-cooking/"
 category: "cooking"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Spices for Indian Cooking ...

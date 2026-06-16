@@ -3,7 +3,7 @@ title: "7 Fun Snacks for Your Football Party ..."
 description: "Taco Puffs; Chocolate Football Krispie Treats; Seven Layer Taco Dip; Pigs in a Blanket; Ranch Style Deviled Eggs; More ..."
 url: "https://cooking.allwomenstalk.com/7-fun-snacks-for-your-football-party/"
 category: "cooking"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 7 Fun Snacks for Your Football Party ...
