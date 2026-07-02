@@ -3,7 +3,7 @@ title: "8 Brunch Foods to Make at Home ..."
 description: "Frittata; French Toast Casserole; Overnight Sausage Strata; Breakfast Mini Mexican Pizzas; Baked Cake Doughnuts; More ..."
 url: "https://cooking.allwomenstalk.com/8-brunch-foods-to-make-at-home/"
 category: "cooking"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 8 Brunch Foods to Make at Home ...
@@ -50,15 +50,15 @@ Top Photo Credit: [LynnInSingapore](https://www.flickr.com/photos/lynnintokyo/21
 
 ## Related Posts
 
-- [7 Yummy Microwave Recipes ...](https://eatial.com/7-yummy-microwave-recipes/)
-- [how to say delicious in italian](https://cooking.allwomenstalk.com/delicious-and-healthy-italian-foods-recipes/)
+- [yummy children](https://cooking.allwomenstalk.com/amazingly-easy-and-yummy-recipes-for-kids-to-make/)
+- [fall wedding foods](https://food.allwomenstalk.com/scrumptious-fall-foods/)
+- [cooking tips and techniques](https://cooking.allwomenstalk.com/9-cooking-techniques-i-need-to-learn/)
+- [7 of My Favorite Secret Recipes ...](https://cooking.allwomenstalk.com/7-of-my-favorite-secret-recipes/)
 - [tasty recipes crock pot](https://cooking.allwomenstalk.com/tasty-slow-cooker-recipes/)
 - [12 Really Simple Appetizers ...](https://cooking.allwomenstalk.com/really-simple-appetizers/)
-- [7 of My Favorite Secret Recipes ...](https://cooking.allwomenstalk.com/7-of-my-favorite-secret-recipes/)
 - [7 Tips for Great Home-Made Pizza ...](https://cooking.allwomenstalk.com/tips-for-great-home-made-pizza/)
-- [fall wedding foods](https://food.allwomenstalk.com/scrumptious-fall-foods/)
-- [yummy children](https://cooking.allwomenstalk.com/amazingly-easy-and-yummy-recipes-for-kids-to-make/)
-- [cooking tips and techniques](https://cooking.allwomenstalk.com/9-cooking-techniques-i-need-to-learn/)
+- [7 Yummy Microwave Recipes ...](https://eatial.com/7-yummy-microwave-recipes/)
+- [how to say delicious in italian](https://cooking.allwomenstalk.com/delicious-and-healthy-italian-foods-recipes/)
 - [seven spices of indian cuisine](https://cooking.allwomenstalk.com/7-spices-for-indian-cooking/)
 - [Top 8 Breakfast Dishes ...](https://cooking.allwomenstalk.com/top-8-breakfast-dishes/)
 - [8 Incredible Ingredients for Delicious Dishes ...](https://cooking.allwomenstalk.com/incredible-ingredients-for-delicious-dishes/)
