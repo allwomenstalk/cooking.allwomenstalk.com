@@ -3,7 +3,7 @@ title: "Top 7 Desserts for Diabetes ..."
 description: "Frozen Strawberry Pops; Raspberry Thumbprints; Frozen Bananas on a Stick; Date Nut Coffee Cake; Carrot Cake; More ..."
 url: "https://cooking.allwomenstalk.com/top-desserts-for-diabetes/"
 category: "cooking"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # Top 7 Desserts for Diabetes ...
@@ -44,16 +44,16 @@ Top image source: [media.erincooks.com](http://media.erincooks.com/images/2009/1
 
 ## Related Posts
 
-- [low fat desserts](https://diet.allwomenstalk.com/low-fat-dessert-recipes/)
-- [steps to make hot chocolate](https://cooking.allwomenstalk.com/tips-for-delicious-home-made-hot-chocolate/)
-- [chocolate chip cookies variations](https://cooking.allwomenstalk.com/top-chocolate-chip-cookie-recipes/)
-- [cakes for vegetarian](https://cooking.allwomenstalk.com/extraordinarily-yummy-vegan-cakes/)
-- [which revision would make the instructions easier ...](https://cooking.allwomenstalk.com/unbelievable-uses-for-baking-supplies/)
-- [list of non chocolate candy](https://cooking.allwomenstalk.com/yummy-candies/)
 - [nice muffin](https://cooking.allwomenstalk.com/most-marvellous-muffin-recipes/)
-- [no bake chocolate desserts easy](https://baking.allwomenstalk.com/no-bake-chocolate-desserts/)
+- [which revision would make the instructions easier ...](https://cooking.allwomenstalk.com/unbelievable-uses-for-baking-supplies/)
+- [cakes for vegetarian](https://cooking.allwomenstalk.com/extraordinarily-yummy-vegan-cakes/)
 - [stuff to make with ice cream](https://food.allwomenstalk.com/delicious-things-you-could-do-with-vanilla-ice-cream/)
 - [8 Chocolate Desserts for Those on a Diet ...](https://diet.allwomenstalk.com/chocolate-desserts-for-those-on-a-diet/)
+- [list of non chocolate candy](https://cooking.allwomenstalk.com/yummy-candies/)
+- [steps to make hot chocolate](https://cooking.allwomenstalk.com/tips-for-delicious-home-made-hot-chocolate/)
+- [low fat desserts](https://diet.allwomenstalk.com/low-fat-dessert-recipes/)
+- [chocolate chip cookies variations](https://cooking.allwomenstalk.com/top-chocolate-chip-cookie-recipes/)
+- [no bake chocolate desserts easy](https://baking.allwomenstalk.com/no-bake-chocolate-desserts/)
 - [7 Best No Bake Desserts ...](https://cooking.allwomenstalk.com/best-no-bake-desserts/)
 - [7 Top Vegan Desserts ...](https://cooking.allwomenstalk.com/top-vegan-desserts/)
 

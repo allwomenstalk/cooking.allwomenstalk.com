@@ -3,7 +3,7 @@ title: "10 Awesome St. Patrick's Day Treats to Make ..."
 description: "Rainbow Pudding; Lucky Vanilla Cupcakes; Green Ice Cream Cupcakes; Marshmallow Kabobs; Beer Jello Shots; More ..."
 url: "https://cooking.allwomenstalk.com/awesome-st-patricks-day-treats-to-make/"
 category: "cooking"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 10 Awesome St. Patrick's Day Treats to Make ...
@@ -65,15 +65,15 @@ For our readers who are kitchen goddesses, we'd love to know some of your **trus
 ## Related Posts
 
 - [7-up cupcakes](https://cooking.allwomenstalk.com/scrumptious-and-fabulous-grown-up-cupcakes/)
+- [forklift oil change](https://food.allwomenstalk.com/guilt-free-recipes-you-will-not-be-able-to-resist/)
 - [easy small bite desserts](https://cooking.allwomenstalk.com/easy-bite-sized-summer-desserts/)
 - [betty crocker chocolate snack cake](https://food.allwomenstalk.com/snack-cake-recipes-to-try-at-home/)
 - [decorating a cake ideas](https://cooking.allwomenstalk.com/fun-tips-for-fabulous-cake-decorating/)
 - [cake to impress](https://cooking.allwomenstalk.com/spring-treats-to-impress-your-friends/)
-- [egg-free cakes](https://cooking.allwomenstalk.com/awesome-egg-free-cakes/)
-- [forklift oil change](https://food.allwomenstalk.com/guilt-free-recipes-you-will-not-be-able-to-resist/)
-- [winter desserts](https://food.allwomenstalk.com/moan-inducing-winter-dessert-recipes-to-make/)
-- [mini desserts easy](https://cooking.allwomenstalk.com/easy-to-make-mini-desserts-your-guests-will-love/)
 - [homemade turkey dog treats](https://lifestyle.allwomenstalk.com/homemade-dog-treats-to-make/)
+- [egg-free cakes](https://cooking.allwomenstalk.com/awesome-egg-free-cakes/)
+- [mini desserts easy](https://cooking.allwomenstalk.com/easy-to-make-mini-desserts-your-guests-will-love/)
+- [winter desserts](https://food.allwomenstalk.com/moan-inducing-winter-dessert-recipes-to-make/)
 - [7 Best Homemade Holiday Treats ...](https://allwomenstalk.com/7-best-homemade-holiday-treats/)
 - [8 Mouth-Watering Valentine's Day Treats to Make .....](https://allwomenstalk.com/8-mouth-watering-valentines-day-treats-to-make/)
 
