@@ -3,7 +3,7 @@ title: "7 Quick Recipes for Unexpected House Guests ..."
 description: "Cheesy Tortilla Snacks; Butter and Herb Snack Strips; Biscuits with Sausage and Spices; Quick Soup; Grilled Cheese Sandwiches; More ..."
 url: "https://cooking.allwomenstalk.com/7-quick-recipes-for-unexpected-house-guests/"
 category: "cooking"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 7 Quick Recipes for Unexpected House Guests ...
@@ -46,14 +46,14 @@ Top Photo Credit: [Epiventures](https://www.flickr.com/photos/epiventures/435054
 
 - [7 healthy dinners](https://food.allwomenstalk.com/quick-and-healthy-dinners/)
 - [yummy pizzas](https://food.allwomenstalk.com/deliciously-scrumptious-tips-on-how-to-make-incredibly-yummy-pizza-at-home/)
-- [how to say delicious in italian](https://cooking.allwomenstalk.com/delicious-and-healthy-italian-foods-recipes/)
-- [12 Really Simple Appetizers ...](https://cooking.allwomenstalk.com/really-simple-appetizers/)
 - [brunch foods](https://cooking.allwomenstalk.com/8-brunch-foods-to-make-at-home/)
-- [tasty gluten free](https://cooking.allwomenstalk.com/delightfully-tasty-gluten-free-recipes/)
-- [uses of stale bread](https://cooking.allwomenstalk.com/ways-to-use-stale-bread/)
-- [8 Staples for Easy Meals ...](https://cooking.allwomenstalk.com/staples-for-easy-meals/)
+- [how to say delicious in italian](https://cooking.allwomenstalk.com/delicious-and-healthy-italian-foods-recipes/)
 - [cooking tips and techniques](https://cooking.allwomenstalk.com/9-cooking-techniques-i-need-to-learn/)
+- [tasty gluten free](https://cooking.allwomenstalk.com/delightfully-tasty-gluten-free-recipes/)
+- [12 Really Simple Appetizers ...](https://cooking.allwomenstalk.com/really-simple-appetizers/)
+- [uses of stale bread](https://cooking.allwomenstalk.com/ways-to-use-stale-bread/)
 - [7 of My Favorite Secret Recipes ...](https://cooking.allwomenstalk.com/7-of-my-favorite-secret-recipes/)
+- [8 Staples for Easy Meals ...](https://cooking.allwomenstalk.com/staples-for-easy-meals/)
 - [7 Tips for Throwing a Dinner Party at the Last Min...](https://cooking.allwomenstalk.com/7-tips-for-throwing-a-dinner-party-at-the-last-minute/)
 - [7 Cool Recipes I Enjoy ...](https://cooking.allwomenstalk.com/7-cool-recipes-i-enjoy/)
 
