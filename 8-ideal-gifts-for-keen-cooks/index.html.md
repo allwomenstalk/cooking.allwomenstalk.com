@@ -48,16 +48,16 @@ Top Photo Credit: [Caketini](https://www.flickr.com/photos/40014572@N03/42158026
 
 ## Related Posts
 
-- [gifts under 50 for him](https://lifestyle.allwomenstalk.com/best-gifts-for-men-under-50/)
-- [tiffany swiss army knife 925 750](https://jewelry.allwomenstalk.com/gifts-for-dad-from-tiffany/)
+- [the best gifts for teachers](https://lifestyle.allwomenstalk.com/best-gifts-for-teachers/)
 - [5 Great Flowers for Birthdays ...](https://gardening.allwomenstalk.com/5-great-flowers-for-birthdays/)
-- [15 Homemade Gift Ideas They'll Love ...](https://lifestyle.allwomenstalk.com/homemade-gift-ideas-theyll-love/)
-- [Celebrating Christmas with the Spotted Olive ...](https://lifestyle.allwomenstalk.com/celebrating-christmas-with-the-spotted-olive/)
 - [what is a good gift for a bridal shower](https://lifestyle.allwomenstalk.com/best-gifts-for-a-bridal-shower/)
 - [singing pickle ornament](https://lifestyle.allwomenstalk.com/giveaway-contest-townsend-custom-gifts/)
-- [christmas wish contest](https://lifestyle.allwomenstalk.com/giveaway-contest-days-of-christmas-greeting-card-set/)
-- [the best gifts for teachers](https://lifestyle.allwomenstalk.com/best-gifts-for-teachers/)
+- [15 Homemade Gift Ideas They'll Love ...](https://lifestyle.allwomenstalk.com/homemade-gift-ideas-theyll-love/)
 - [gifts for girls 4 7 geeky](https://lifestyle.allwomenstalk.com/gifts-for-the-nerd-in-your-life/)
+- [Celebrating Christmas with the Spotted Olive ...](https://lifestyle.allwomenstalk.com/celebrating-christmas-with-the-spotted-olive/)
+- [gifts under 50 for him](https://lifestyle.allwomenstalk.com/best-gifts-for-men-under-50/)
+- [christmas wish contest](https://lifestyle.allwomenstalk.com/giveaway-contest-days-of-christmas-greeting-card-set/)
+- [tiffany swiss army knife 925 750](https://jewelry.allwomenstalk.com/gifts-for-dad-from-tiffany/)
 - [8 Colourful Kitchen Appliances ...](https://cooking.allwomenstalk.com/8-colourful-kitchen-appliances/)
 - [8 Cookbooks from Iconic Female Chefs ...](https://cooking.allwomenstalk.com/cookbooks-from-iconic-female-chefs/)
 

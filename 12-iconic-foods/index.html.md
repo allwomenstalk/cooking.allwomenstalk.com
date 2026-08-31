@@ -64,16 +64,16 @@ Top Photo Credit: [Wananga](https://www.flickr.com/photos/wananga/29379091/)
 
 ## Related Posts
 
-- [blueberries or blackberries healthier](https://food.allwomenstalk.com/wonderfully-healthy-berries-to-introduce-to-your-diet/)
-- [gift for a health nut](https://food.allwomenstalk.com/delicious-dishes-for-the-wannabe-health-nut/)
-- [20 Healthiest Diet Foods for You ...](https://eatial.com/healthiest-diet-foods-for-you/)
-- [spicy food to eat](https://cooking.allwomenstalk.com/top-8-spicy-food-you-can-eat/)
-- [7 Healthy Salads to Eat Daily ...](https://diet.allwomenstalk.com/healthy-salads-to-eat-daily/)
-- [lightest cheese](https://food.allwomenstalk.com/unbelievably-light-and-scrumptiously-healthy-types-of-cheese/)
 - [yummy frozen food](https://food.allwomenstalk.com/amazingly-yummy-and-healthy-frozen-foods/)
-- [7 Healthy Snacks to Have before Dinner ...](https://diet.allwomenstalk.com/healthy-snacks-to-have-before-dinner/)
+- [20 Healthiest Diet Foods for You ...](https://eatial.com/healthiest-diet-foods-for-you/)
 - [7 Foods I Didn't Think I'd like but do ...](https://cooking.allwomenstalk.com/7-foods-i-didnt-think-id-like-but-do/)
+- [7 Healthy Snacks to Have before Dinner ...](https://diet.allwomenstalk.com/healthy-snacks-to-have-before-dinner/)
+- [gift for a health nut](https://food.allwomenstalk.com/delicious-dishes-for-the-wannabe-health-nut/)
+- [7 Healthy Salads to Eat Daily ...](https://diet.allwomenstalk.com/healthy-salads-to-eat-daily/)
+- [blueberries or blackberries healthier](https://food.allwomenstalk.com/wonderfully-healthy-berries-to-introduce-to-your-diet/)
 - [healthy fast food dinner choices](https://diet.allwomenstalk.com/healthy-fast-foods-to-opt-for/)
+- [spicy food to eat](https://cooking.allwomenstalk.com/top-8-spicy-food-you-can-eat/)
+- [lightest cheese](https://food.allwomenstalk.com/unbelievably-light-and-scrumptiously-healthy-types-of-cheese/)
 - [7 Most Exotic Delicacies in the World ...](https://cooking.allwomenstalk.com/7-most-exotic-delicacies-in-the-world/)
 - [9 Delicious Summertime Foods ...](https://cooking.allwomenstalk.com/delicious-summertime-foods/)
 

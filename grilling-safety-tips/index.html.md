@@ -46,16 +46,16 @@ Top Photo Credit: [Johann Richard](https://www.flickr.com/photos/shrewd/21867166
 
 ## Related Posts
 
-- [tips on raising chickens](https://gardening.allwomenstalk.com/5-tips-on-raising-chickens/)
 - [bbq for beginners](https://cooking.allwomenstalk.com/tips-for-the-barbecue-beginner/)
-- [care for koi](https://gardening.allwomenstalk.com/5-tips-on-caring-for-koi/)
-- [5 Tips on Having a Bird Feeder ...](https://gardening.allwomenstalk.com/5-tips-on-having-a-bird-feeder/)
-- [chasing bugs](https://gardening.allwomenstalk.com/5-tips-on-chasing-bugs-away/)
-- [5 Tips on Getting Misteltoe ...](https://gardening.allwomenstalk.com/5-tips-on-getting-misteltoe/)
-- [photographing butterflies](https://gardening.allwomenstalk.com/5-tips-on-photographing-butterflies/)
 - [orange things on sushi](https://cooking.allwomenstalk.com/10-things-to-know-if-youre-a-sushi-beginner/)
-- [last minute dinner ideas for company](https://cooking.allwomenstalk.com/7-tips-for-throwing-a-dinner-party-at-the-last-minute/)
 - [10 Tips for Setting a Lovely Table ...](https://cooking.allwomenstalk.com/tips-for-setting-a-lovely-table/)
+- [photographing butterflies](https://gardening.allwomenstalk.com/5-tips-on-photographing-butterflies/)
+- [5 Tips on Getting Misteltoe ...](https://gardening.allwomenstalk.com/5-tips-on-getting-misteltoe/)
+- [5 Tips on Having a Bird Feeder ...](https://gardening.allwomenstalk.com/5-tips-on-having-a-bird-feeder/)
+- [care for koi](https://gardening.allwomenstalk.com/5-tips-on-caring-for-koi/)
+- [last minute dinner ideas for company](https://cooking.allwomenstalk.com/7-tips-for-throwing-a-dinner-party-at-the-last-minute/)
+- [chasing bugs](https://gardening.allwomenstalk.com/5-tips-on-chasing-bugs-away/)
+- [tips on raising chickens](https://gardening.allwomenstalk.com/5-tips-on-raising-chickens/)
 - [7 Unusual Foods for the Barbecue ...](https://cooking.allwomenstalk.com/unusual-foods-for-the-barbecue/)
 - [7 Great Menus' for the Grill ...](https://allwomenstalk.com/7-great-menus-for-the-grill/)
 

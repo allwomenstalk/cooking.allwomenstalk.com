@@ -233,16 +233,16 @@ Top Photo Credit: [youngandraw.com](https://www.youngandraw.com/10-tips-for-rais
 
 ## Related Posts
 
-- [healthy recipes kale](https://diet.allwomenstalk.com/healthy-kale-recipes/)
-- [best egg sandwich recipes](https://cooking.allwomenstalk.com/great-egg-sandwich-recipes-for-everyone/)
 - [new thanksgiving dinner ideas](https://allwomenstalk.com/7-new-ideas-for-thanksgiving-dinner/)
 - [planning a dinner party for 10](https://lifestyle.allwomenstalk.com/easy-tips-on-throwing-the-best-dinner-party-ever/)
-- [500 calorie lunches for work](https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/)
-- [crescent roll instructions](https://cooking.allwomenstalk.com/easy-crescent-roll-recipes/)
-- [reuse cans](https://diy.allwomenstalk.com/clever-ways-to-repurpose-tuna-cans/)
-- [ethnic food ideas](https://cooking.allwomenstalk.com/healthy-and-filling-ethnic-recipes-to-try-this-fall/)
-- [substitutes for cooking](https://food.allwomenstalk.com/simple-ingredient-substitutions-to-try/)
+- [healthy recipes kale](https://diet.allwomenstalk.com/healthy-kale-recipes/)
 - [what is the worst food for you](https://food.allwomenstalk.com/simple-dinner-anyone-can-learn-to-make/)
+- [reuse cans](https://diy.allwomenstalk.com/clever-ways-to-repurpose-tuna-cans/)
+- [crescent roll instructions](https://cooking.allwomenstalk.com/easy-crescent-roll-recipes/)
+- [500 calorie lunches for work](https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/)
+- [best egg sandwich recipes](https://cooking.allwomenstalk.com/great-egg-sandwich-recipes-for-everyone/)
+- [substitutes for cooking](https://food.allwomenstalk.com/simple-ingredient-substitutions-to-try/)
+- [ethnic food ideas](https://cooking.allwomenstalk.com/healthy-and-filling-ethnic-recipes-to-try-this-fall/)
 - [8 Scrumptious Recipes for Beginner Vegetarians ...](https://food.allwomenstalk.com/scrumptious-recipes-for-beginner-vegetarians/)
 - [8 Veggies to Serve Your Child ...](https://allwomenstalk.com/8-veggies-to-serve-your-child/)
 

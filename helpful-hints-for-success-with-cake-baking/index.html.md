@@ -44,16 +44,16 @@ Top Photo Credit: [jules:stonesoup](https://www.flickr.com/photos/stone-soup/552
 
 ## Related Posts
 
-- [bird feeder how to make](https://gardening.allwomenstalk.com/5-tips-on-making-your-own-bird-feeder/)
-- [chasing bugs](https://gardening.allwomenstalk.com/5-tips-on-chasing-bugs-away/)
-- [bbq for beginners](https://cooking.allwomenstalk.com/tips-for-the-barbecue-beginner/)
-- [last minute dinner ideas for company](https://cooking.allwomenstalk.com/7-tips-for-throwing-a-dinner-party-at-the-last-minute/)
 - [Don't Screw around, do It Yourself ...](https://celebs.allwomenstalk.com/dont-screw-around-do-it-yourself/)
 - [safe grilling tips](https://cooking.allwomenstalk.com/grilling-safety-tips/)
-- [caring for koi fish](https://gardening.allwomenstalk.com/5-tips-on-caring-for-koi-fish/)
+- [bbq for beginners](https://cooking.allwomenstalk.com/tips-for-the-barbecue-beginner/)
 - [orange things on sushi](https://cooking.allwomenstalk.com/10-things-to-know-if-youre-a-sushi-beginner/)
+- [bird feeder how to make](https://gardening.allwomenstalk.com/5-tips-on-making-your-own-bird-feeder/)
 - [tips on raising chickens](https://gardening.allwomenstalk.com/5-tips-on-raising-chickens/)
+- [caring for koi fish](https://gardening.allwomenstalk.com/5-tips-on-caring-for-koi-fish/)
+- [chasing bugs](https://gardening.allwomenstalk.com/5-tips-on-chasing-bugs-away/)
 - [10 Tips for Setting a Lovely Table ...](https://cooking.allwomenstalk.com/tips-for-setting-a-lovely-table/)
+- [last minute dinner ideas for company](https://cooking.allwomenstalk.com/7-tips-for-throwing-a-dinner-party-at-the-last-minute/)
 - [8 Pointers for Basic Baking ...](https://cooking.allwomenstalk.com/pointers-for-basic-baking/)
 - [7 Tips for Great Home-Made Pizza ...](https://cooking.allwomenstalk.com/tips-for-great-home-made-pizza/)
 
