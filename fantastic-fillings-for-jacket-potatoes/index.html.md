@@ -3,7 +3,7 @@ title: "8 Fantastic Fillings for Jacket Potatoes ..."
 description: "Peanut Stuffing; Beef Fajita; Brazilian Picadillo; Chicken & Mushroom Spud Pies; Smoked Mackerel & Spring Onion; More ..."
 url: "https://cooking.allwomenstalk.com/fantastic-fillings-for-jacket-potatoes/"
 category: "cooking"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 8 Fantastic Fillings for Jacket Potatoes ...
@@ -68,20 +68,18 @@ You may well have sampled a cranberry and Brie sandwich, but I´m sure you´d ne
 
 A **jacket potato** makes a great lunch, and with a little forethought you can have a topping that´s much more imaginative than grated cheese or beans. Try some of these fillings, and this basic dish will become a lunchtime feast. What is your favourite filling for jacket potatoes – and are you fond of indulging in an unusual filling?
 
-Top Photo Credit: [weheartit.com](https://weheartit.com/entry/1423569)
-
 ## Related Posts
 
-- [non vegan water](https://cooking.allwomenstalk.com/great-vegan-recipes-for-non-vegans-to-try/)
 - [teacher appreciation food ideas](https://food.allwomenstalk.com/easy-dinner-recipes-for-two-to-wow-your-man/)
-- [upside down jalapeno cornbread joshua weissman](https://cooking.allwomenstalk.com/fabulous-bread-recipes-from-around-the-world/)
-- [problems with mrs dash](https://diet.allwomenstalk.com/extremely-delicious-low-sodium-recipes/)
 - [blog english moroccan](https://allwomenstalk.com/wonderfully-mouthwatering-moroccan-food-blogs/)
-- [food commercials tricks](https://food.allwomenstalk.com/tricks-advertisers-use-to-make-food-look-good/)
-- [easy entre](https://food.allwomenstalk.com/delicious-and-easy-entrees/)
-- [skinny kitchen secrets](https://food.allwomenstalk.com/old-and-true-kitchen-secrets-worth-knowing/)
+- [non vegan water](https://cooking.allwomenstalk.com/great-vegan-recipes-for-non-vegans-to-try/)
 - [scrumptious in spanish](https://allwomenstalk.com/wonderfully-scrumptious-spanish-cooking-blogs/)
+- [problems with mrs dash](https://diet.allwomenstalk.com/extremely-delicious-low-sodium-recipes/)
 - [recipes using lots of vegetables](https://cooking.allwomenstalk.com/extraordinary-vegetable-recipes/)
+- [skinny kitchen secrets](https://food.allwomenstalk.com/old-and-true-kitchen-secrets-worth-knowing/)
+- [upside down jalapeno cornbread joshua weissman](https://cooking.allwomenstalk.com/fabulous-bread-recipes-from-around-the-world/)
+- [easy entre](https://food.allwomenstalk.com/delicious-and-easy-entrees/)
+- [food commercials tricks](https://food.allwomenstalk.com/tricks-advertisers-use-to-make-food-look-good/)
 - [7 Meat and Potatoes Recipes ...](https://eatial.com/7-meat-and-potatoes-recipes/)
 - [8 Best Spring Recipes ...](https://allwomenstalk.com/8-best-spring-recipes/)
 

@@ -3,7 +3,7 @@ title: "7 Variations on the Traditional Brownie Recipe ..."
 description: "Chocolate Chunk and Raspberry Brownies; Chocolate Coconut Brownies; White Chocolate, Cherry, and Almond Brownies; Peppermint Crisp Brownies; Peanut Butter and Chocolate Brownies; More ..."
 url: "https://cooking.allwomenstalk.com/7-variations-on-the-traditional-brownie-recipe/"
 category: "cooking"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 7 Variations on the Traditional Brownie Recipe ...
@@ -39,8 +39,6 @@ The combination of chocolate and orange is tasty and timeless. This is why I sim
 These adult-only brownies would be the perfect after-dinner treat. For this recipe, place the raisins into a small bowl and pour over a few tablespoons of rum. Set them aside while you prepare the rest of the ingredients as per usual. Fold the raisins through the final mixture and then pour into a baking tray. Bake, cool, and then dust with icing sugar to serve.
 
 Any of these recipes are sure to be a hit with guests. What’s your favourite take on the traditional brownie?
-
-Top Photo Credit: [LJ42](https://www.flickr.com/photos/lj-42/3927269258/)
 
 ## Related Posts
 

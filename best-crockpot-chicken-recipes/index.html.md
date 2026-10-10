@@ -3,7 +3,7 @@ title: "20+ Best Crockpot Chicken Recipes ..."
 description: "Slow Cooker Bacon Garlic Chicken Breast; Slow Cooker Chicken Fajita Bowls Recipe; Garlic Butter Chicken and Pasta; Easy Chicken Santa Fe; Crockpot Beer Braised Chicken; More ..."
 url: "https://cooking.allwomenstalk.com/best-crockpot-chicken-recipes/"
 category: "cooking"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 20+ Best Crockpot Chicken Recipes ...
@@ -194,15 +194,15 @@ Full recipe with direction on [Keyingredient](https://www.keyingredient.com/reci
 
 ## Related Posts
 
-- [dessert](https://eatial.com/best-ellie-krieger-recipes/)
-- [best asian fish recipes](https://food.allwomenstalk.com/best-asian-fish-recipes/)
-- [bagel sandwich maker](https://food.allwomenstalk.com/best-breakfast-sandwich-maker-recipes/)
 - [ground sirloin recipes](https://food.allwomenstalk.com/best-ground-sirloin-recipes/)
-- [grilled shrimp and chorizo](https://allwomenstalk.com/grilled-shrimp-chorizo-appetizers-recipe/)
-- [saurkraut meals](https://food.allwomenstalk.com/best-sauerkraut-recipes/)
-- [lean meat for acid reflux](https://diet.allwomenstalk.com/best-gerd-recipes/)
-- [healthy shaved steak recipes](https://food.allwomenstalk.com/best-recipes-with-shaved-steak/)
 - [single serve baked mac and cheese](https://food.allwomenstalk.com/best-mini-cocotte-recipes/)
+- [saurkraut meals](https://food.allwomenstalk.com/best-sauerkraut-recipes/)
+- [grilled shrimp and chorizo](https://allwomenstalk.com/grilled-shrimp-chorizo-appetizers-recipe/)
+- [bagel sandwich maker](https://food.allwomenstalk.com/best-breakfast-sandwich-maker-recipes/)
+- [lean meat for acid reflux](https://diet.allwomenstalk.com/best-gerd-recipes/)
+- [best asian fish recipes](https://food.allwomenstalk.com/best-asian-fish-recipes/)
+- [healthy shaved steak recipes](https://food.allwomenstalk.com/best-recipes-with-shaved-steak/)
+- [dessert](https://eatial.com/best-ellie-krieger-recipes/)
 - [plated menus](https://food.allwomenstalk.com/best-plated-recipes/)
 - [7 Tasty Slow-Cooker Recipes ...](https://cooking.allwomenstalk.com/tasty-slow-cooker-recipes/)
 - [7 Gratifyingly Easy & Delicious Crockpot Recipes ....](https://cooking.allwomenstalk.com/easy-delicious-crockpot-recipes/)

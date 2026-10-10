@@ -3,7 +3,7 @@ title: "8 Sneaky Recipes for Kids Who Hate Vegetables ..."
 description: "Mini Quiches; Chicken Noodle Soup; Vegetable Frankie; Sweet Potato Sticks; Bubble & Squeak Potato Cakes; More ..."
 url: "https://cooking.allwomenstalk.com/sneaky-recipes-for-kids-who-hate-vegetables/"
 category: "cooking"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 8 Sneaky Recipes for Kids Who Hate Vegetables ...
@@ -74,20 +74,18 @@ Pizza is definitely a winner for youngsters, so you can´t go wrong when choosin
 
 Many children can be fussy about food, but with a bit of ingenuity, you can hide a lot of vegetables in **kids´ meals**. There are some great recipes for kids, and others that can be adapted. You needn´t even confess what you´ve fed them (well, not for several years, anyway). What recipes for kids are most popular with your family?
 
-Top Photo Credit: [weheartit.com](https://weheartit.com/entry/23076694)
-
 ## Related Posts
 
-- [scrumptious in spanish](https://allwomenstalk.com/wonderfully-scrumptious-spanish-cooking-blogs/)
-- [baked potato fillers](https://cooking.allwomenstalk.com/fantastic-fillings-for-jacket-potatoes/)
-- [recipes using lots of vegetables](https://cooking.allwomenstalk.com/extraordinary-vegetable-recipes/)
-- [food commercials tricks](https://food.allwomenstalk.com/tricks-advertisers-use-to-make-food-look-good/)
-- [easy ways to cook meat](https://cooking.allwomenstalk.com/scrumptious-ways-to-cook-red-meat/)
 - [easy entre](https://food.allwomenstalk.com/delicious-and-easy-entrees/)
-- [scrumptious steak](https://cooking.allwomenstalk.com/scrumptious-stir-fry-recipes/)
-- [non vegan water](https://cooking.allwomenstalk.com/great-vegan-recipes-for-non-vegans-to-try/)
-- [hostess menu](https://food.allwomenstalk.com/top-menu-planning-tips-every-hostess-should-know/)
+- [recipes using lots of vegetables](https://cooking.allwomenstalk.com/extraordinary-vegetable-recipes/)
+- [easy ways to cook meat](https://cooking.allwomenstalk.com/scrumptious-ways-to-cook-red-meat/)
 - [blog english moroccan](https://allwomenstalk.com/wonderfully-mouthwatering-moroccan-food-blogs/)
+- [scrumptious steak](https://cooking.allwomenstalk.com/scrumptious-stir-fry-recipes/)
+- [baked potato fillers](https://cooking.allwomenstalk.com/fantastic-fillings-for-jacket-potatoes/)
+- [hostess menu](https://food.allwomenstalk.com/top-menu-planning-tips-every-hostess-should-know/)
+- [food commercials tricks](https://food.allwomenstalk.com/tricks-advertisers-use-to-make-food-look-good/)
+- [scrumptious in spanish](https://allwomenstalk.com/wonderfully-scrumptious-spanish-cooking-blogs/)
+- [non vegan water](https://cooking.allwomenstalk.com/great-vegan-recipes-for-non-vegans-to-try/)
 - [8 Scrumptious Recipes for Beginner Vegetarians ...](https://food.allwomenstalk.com/scrumptious-recipes-for-beginner-vegetarians/)
 - [8 Veggies to Serve Your Child ...](https://allwomenstalk.com/8-veggies-to-serve-your-child/)
 

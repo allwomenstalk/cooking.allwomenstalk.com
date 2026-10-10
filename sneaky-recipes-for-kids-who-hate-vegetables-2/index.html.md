@@ -3,7 +3,7 @@ title: "8 Sneaky Recipes for Kids Who Hate Vegetables ..."
 description: "Mini Quiches; Chicken Noodle Soup; Vegetable Frankie; Sweet Potato Sticks; Bubble & Squeak Potato Cakes; More ..."
 url: "https://cooking.allwomenstalk.com/sneaky-recipes-for-kids-who-hate-vegetables-2/"
 category: "cooking"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 8 Sneaky Recipes for Kids Who Hate Vegetables ...
@@ -229,20 +229,18 @@ Many children can be fussy about food, but with a bit of ingenuity, you can hide
 
 Sources: [busycooks.about.com](https://www.thespruceeats.com/mini-crustless-spinach-and-mushroom-quiches-3060041), [childparenting.about.com](https://www.verywellfamily.com/child-nutrition-and-vegetables-2633937), [vegetarian-cooking-recipes-tips.com](https://www.vegetarian-cooking-recipes-tips.com/veg-franki-vegetable-frankie-recipe.html), [allrecipes.com](https://www.allrecipes.com/recipe/13517/baked-sweet-potato-sticks/), _freshforkids.com.au_, [myrecipes.com](https://www.myrecipes.com/recipe/pasta-with-winter-squash-pine-nuts), [blogs.babble.com](https://goo.gl/00lCha), [taste.com.au](https://web.archive.org/web/http://www.taste.com.au/recipes/24990/antipasto+pizza)
 
-Top Photo Credit: [youngandraw.com](https://www.youngandraw.com/10-tips-for-raising-super-healthy-kids/)
-
 ## Related Posts
 
-- [crescent roll instructions](https://cooking.allwomenstalk.com/easy-crescent-roll-recipes/)
-- [healthy recipes kale](https://diet.allwomenstalk.com/healthy-kale-recipes/)
-- [substitutes for cooking](https://food.allwomenstalk.com/simple-ingredient-substitutions-to-try/)
-- [planning a dinner party for 10](https://lifestyle.allwomenstalk.com/easy-tips-on-throwing-the-best-dinner-party-ever/)
-- [ethnic food ideas](https://cooking.allwomenstalk.com/healthy-and-filling-ethnic-recipes-to-try-this-fall/)
-- [500 calorie lunches for work](https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/)
 - [reuse cans](https://diy.allwomenstalk.com/clever-ways-to-repurpose-tuna-cans/)
-- [what is the worst food for you](https://food.allwomenstalk.com/simple-dinner-anyone-can-learn-to-make/)
-- [best egg sandwich recipes](https://cooking.allwomenstalk.com/great-egg-sandwich-recipes-for-everyone/)
+- [crescent roll instructions](https://cooking.allwomenstalk.com/easy-crescent-roll-recipes/)
+- [ethnic food ideas](https://cooking.allwomenstalk.com/healthy-and-filling-ethnic-recipes-to-try-this-fall/)
+- [planning a dinner party for 10](https://lifestyle.allwomenstalk.com/easy-tips-on-throwing-the-best-dinner-party-ever/)
 - [new thanksgiving dinner ideas](https://allwomenstalk.com/7-new-ideas-for-thanksgiving-dinner/)
+- [best egg sandwich recipes](https://cooking.allwomenstalk.com/great-egg-sandwich-recipes-for-everyone/)
+- [what is the worst food for you](https://food.allwomenstalk.com/simple-dinner-anyone-can-learn-to-make/)
+- [substitutes for cooking](https://food.allwomenstalk.com/simple-ingredient-substitutions-to-try/)
+- [healthy recipes kale](https://diet.allwomenstalk.com/healthy-kale-recipes/)
+- [500 calorie lunches for work](https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/)
 - [8 Scrumptious Recipes for Beginner Vegetarians ...](https://food.allwomenstalk.com/scrumptious-recipes-for-beginner-vegetarians/)
 - [8 Veggies to Serve Your Child ...](https://allwomenstalk.com/8-veggies-to-serve-your-child/)
 

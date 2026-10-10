@@ -3,7 +3,7 @@ title: "7 Amazingly Easy and Yummy Recipes for Kids to Make ..."
 description: "Frozen Yoghurt Pops at kidshealth.org; Little Pitta Pizzas at annabelkarmel.com; Creamy Linguine with Ham, Lemon and Basil at bbcgoodfood.com; Fun Burgers at cookuk.co.uk; Surprise Fridge Cake at uktv.co.uk; More ..."
 url: "https://cooking.allwomenstalk.com/amazingly-easy-and-yummy-recipes-for-kids-to-make/"
 category: "cooking"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 7 Amazingly Easy and Yummy Recipes for Kids to Make ...
@@ -39,8 +39,6 @@ Obviously, some stages of this recipe will require careful supervision or help f
 Chicken nuggets are of course a favourite with kids, but the bought variety can be pretty unhealthy. So here's a healthier alternative that the whole family will enjoy. It's one of the most popular recipes for kids, and it's fun to make. There's no frying, the nuggets are baked instead. As with the other recipes, the kids will enjoy the messy bit - covering the chicken pieces with breadcrumbs.
 
 By implementing fun **recipes for kids**, you can spend more time with your children, and help them learn. While you can't let children loose in the kitchen on their own until they reach a certain level of culinary competence, they can help make a lot of **recipes for kids**. It's so important to start them early so that they can cook well as adults instead of relying on ready meals and junk food. We all know someone who is hopeless in the kitchen because they never learned how to cook – make sure your kids are not among them! What was your favourite dish to make when you were young? If you've got any other **recipes for kids** to share, please do!
-
-Top Photo Credit: [Toca Boca](https://www.flickr.com/photos/tocaboca/6396860165/)
 
 ## Related Posts
 

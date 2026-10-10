@@ -3,7 +3,7 @@ title: "7 Delicious Desserts under 200 Calories ..."
 description: "Sorbet; Rice Pudding; Baked Apple; Frozen Bananas; Fruit Smoothies; More ..."
 url: "https://cooking.allwomenstalk.com/delicious-desserts-under-200-calories/"
 category: "cooking"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 7 Delicious Desserts under 200 Calories ...
@@ -39,8 +39,6 @@ Another low calorie alternative to ice cream, yogurt is low fat, goes with every
 While strawberries and cream might be the all-time classic combination, this alternative is just as delicious but considerably less fattening. Strawberries are rich in fiber and vitamin C and virtually fat free, so you can indulge in a generous portion dipped in chocolate sauce without worrying about sabotaging your diet. This is another delicious dessert under 200 calories that is wonderfully simple to prepare, and it actually averages at only 149 calories (for one cup of strawberries and two tablespoons of chocolate sauce).
 
 As you can see, there are loads of **delicious desserts under 200 calories** you can enjoy at any time -- and many of them make fantastic snacks as well! You can easily satisfy your sweet tooth without putting your diet in jeopardy, or feeling up with unhealthy, empty calories. I hope you will be tempted to try one of these **desserts under 200 calories**, as they are all quick and easy to prepare, inexpensive and most importantly, delicious! Tell me, what other scrumptious sweet treats and **delicious desserts under 200 calories** do you have to add to the list?
-
-Top Photo Credit: [weheartit.com](https://weheartit.com/entry/11785642)
 
 ## Related Posts
 

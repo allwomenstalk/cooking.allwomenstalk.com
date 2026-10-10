@@ -3,7 +3,7 @@ title: "8 Extraordinarily Yummy Vegan Cakes ..."
 description: "Black Forest Cherry Cake at vegansociety.com; Best Chocolate Cake Ever at instructables.com; Vegan Gingerbread at grouprecipes.com; Vegan Carrot Cake at grouprecipes.com; Vegan Red Velvet Cake at thedailygreen.com; More ..."
 url: "https://cooking.allwomenstalk.com/extraordinarily-yummy-vegan-cakes/"
 category: "cooking"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 8 Extraordinarily Yummy Vegan Cakes ...
@@ -59,8 +59,6 @@ What's a vegan to do at Christmas if they love the traditional cake? Why, make t
 Finally, here's a delicious lemon-flavoured **vegan cake**. If you find cakes too dry without icing (or just love that extra sweetness), this could be the cake for you. The recipe can also be used to make cupcakes, which would be great for serving to friends or having with coffee.
 
 I hope these **vegan cake** recipes tempt you to have a go at dairy- and egg-free baking – you can still make wonderful cakes without animal ingredients. You don't even have to be vegan to make them; a lot of **vegan cake** recipes use vegetable oil, so if you're itching to get baking but you don´t have any eggs or butter, you can still find a suitable recipe. Have you ever tried making a **vegan cake**, and how did it turn out?
-
-Top Photo Credit: [lauraadamache.ro](https://www.lauraadamache.ro/2011/12/prajitura-de-post-cu-fructe.html)
 
 ## Related Posts
 

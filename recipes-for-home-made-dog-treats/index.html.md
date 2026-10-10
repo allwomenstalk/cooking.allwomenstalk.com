@@ -3,7 +3,7 @@ title: "7 Recipes for Home-Made Dog Treats ..."
 description: "Classic Dog Crunchies; Doggie Veggie Crisps; Honey Dog Chomps; Beefy Bites; Bran Biccies; More ..."
 url: "https://cooking.allwomenstalk.com/recipes-for-home-made-dog-treats/"
 category: "cooking"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 7 Recipes for Home\-Made Dog Treats ...
@@ -39,8 +39,6 @@ You will need 5oz (150g) whole wheat flour, 5oz (150g) wheat bread flour, 3½ 6o
 Ingredients are 11oz (300g) sausage meat, 11oz (300g) breadcrumbs, 1 tablespoon golden syrup, 2½ fl oz (75ml) milk, 1 tablespoon chopped oregano, oil for greasing, and flour for dusting. Preheat the oven to 345°F (175°). Knead together all the ingredients to form a soft dough. If too sticky add more breadcrumbs. Shape dough to a ball cover in plastic and chill in the fridge for 20 minutes. Grease six tartlet tins. Roll out dough on a floured surface to ¼ inch (5mm) and cut circles with fluted cutter. Put circles into tartlet tins and bake for 30 minutes. Cool on a wire rack.
 
 I hope you enjoy making these recipes for home made dog treats and your pooch enjoys them. You will tell us which ones are your pet’s favorite won’t you?
-
-Top Photo Credit: _Kingdom Animalia_
 
 ## Related Posts
 

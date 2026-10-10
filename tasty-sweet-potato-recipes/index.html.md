@@ -3,7 +3,7 @@ title: "10 Tasty Sweet Potato Recipes ..."
 description: "Sweet Potato Pancakes...; Sweet Potato Breakfast Pizza...; Sweet Potato Salad...; Sweet Potato Pockets...; Sweet Potato Soup...; More ..."
 url: "https://cooking.allwomenstalk.com/tasty-sweet-potato-recipes/"
 category: "cooking"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 10 Tasty Sweet Potato Recipes ...
@@ -56,23 +56,23 @@ _ Sweet potato pie is a popular dessert during the winter holidays so why not tr
 
 ## 10. Sweet Potato Cheesecake...
 
-_ Did you say cheesecake! This looks and sounds like a tasty and healthy **sweet potato recipe** that includes apricots, gingersnap cookies, yogurt, and even pumpkin pie spice! This recipe even has less calories than the quick bread with only 164 per serving! Check out [Women's Health Mag](https://w1.buysub.com/pubs/HR/A14/Hearst_Subscription_LP.jsp?cds_mag_code=A14&cds_page_id=257255)for the complete recipe and details.
+![Sweet Potato Cheesecake...](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/cooking/2012/03/sweetpotatocheesecake_450x450.jpg)
+
+Did you say cheesecake! This looks and sounds like a tasty and healthy **sweet potato recipe** that includes apricots, gingersnap cookies, yogurt, and even pumpkin pie spice! This recipe even has less calories than the quick bread with only 164 per serving! Check out [Women's Health Mag](https://w1.buysub.com/pubs/HR/A14/Hearst_Subscription_LP.jsp?cds_mag_code=A14&cds_page_id=257255)for the complete recipe and details.
 
 Whether you include **sweet potatoes** in your breakfast, lunch, dinner, or dessert, you will feel good about choosing this healthy potato alternative. It does have a sweet, strong taste to it that everyone may not like, but when paired with other ingredients it will blend in and become more enjoyable for everyone. Have you tried any **sweet potato recipes** that aren't on the list that you and your family cook all year long?
 
-Top Photo Credit_
-
 ## Related Posts
 
-- [7 Delicious Asparagus Recipes ...](https://diet.allwomenstalk.com/delicious-asparagus-recipes/)
 - [hsp stand for](https://food.allwomenstalk.com/awesome-tips-for-weekly-menu-planning/)
-- [7 Easy Slow Cooker Dinners Your Family Will Love ....](https://eatial.com/easy-slow-cooker-dinners-your-family-will-love/)
-- [8 Awesome Vegetable Side Dishes ...](https://eatial.com/awesome-vegetable-side-dishes/)
 - [7 Ways Add More Flavor to Your Favorite Dishes ...](https://cooking.allwomenstalk.com/ways-add-more-flavor-to-your-favorite-dishes/)
-- [8 Delightful Zucchini Recipes ...](https://eatial.com/delightful-zucchini-recipes/)
-- [8 Terrifically Tasty Vegan Main Dishes ...](https://eatial.com/terrifically-tasty-vegan-main-dishes/)
-- [7 Tasty Beer Battered Recipes ...](https://eatial.com/tasty-beer-battered-recipes/)
+- [8 Awesome Vegetable Side Dishes ...](https://eatial.com/awesome-vegetable-side-dishes/)
 - [7 Delicious and Healthy Side Dishes for Dinner ...](https://diet.allwomenstalk.com/delicious-and-healthy-side-dishes-for-dinner/)
+- [7 Delicious Asparagus Recipes ...](https://diet.allwomenstalk.com/delicious-asparagus-recipes/)
+- [8 Terrifically Tasty Vegan Main Dishes ...](https://eatial.com/terrifically-tasty-vegan-main-dishes/)
+- [7 Easy Slow Cooker Dinners Your Family Will Love ....](https://eatial.com/easy-slow-cooker-dinners-your-family-will-love/)
+- [7 Tasty Beer Battered Recipes ...](https://eatial.com/tasty-beer-battered-recipes/)
+- [8 Delightful Zucchini Recipes ...](https://eatial.com/delightful-zucchini-recipes/)
 - [leftover chicken recipe ideas](https://food.allwomenstalk.com/delicious-meal-ideas-for-leftover-chicken/)
 - [7 Meat and Potatoes Recipes ...](https://eatial.com/7-meat-and-potatoes-recipes/)
 - [7 Cool Recipes to Try ...](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)

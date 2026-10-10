@@ -3,7 +3,7 @@ title: "9 Delightful Easy Sauce Recipes ..."
 description: "Creamy Mustard Sauce; Malay Coconut Fragrant Yellow Curry Sauce; Mushroom Gravy; Easy Tomato Sauce; Hot Mexican Salsa; More ..."
 url: "https://cooking.allwomenstalk.com/delightful-easy-sauce-recipes/"
 category: "cooking"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 9 Delightful Easy Sauce Recipes ...
@@ -77,8 +77,6 @@ Now for a couple of sweet sauces. Liqueurs work so well in desserts! This delici
 Or raspberry sauce, if you don´t speak French. This is a simple but tasty and easy sauce recipe to add a contrast to desserts. It would work as well with ice cream as with a rich chocolate cake (fruit sauces go really well with rich desserts, especially anything with chocolate in it).
 
 These **easy sauce recipes** won´t take too much time to make, but can really add that special touch to meals. It´s so much nicer to make your own than to use a bought sauce full of preservatives. So have a go at one of these easy sauce recipes to spice up your meals. What is your favourite sauce – is there one you add to everything?
-
-Top Photo Credit: [anjasfood4thought.com](https://thetastyhub.com/the-tasty-hub-acquires-anjasfood4though/)
 
 ## Related Posts
 

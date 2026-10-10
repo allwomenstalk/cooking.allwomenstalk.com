@@ -3,7 +3,7 @@ title: "7 Top Vegan Desserts ..."
 description: "Chocolate Cake; Lemon Cake; Brownies; Banana Brûlée; Poached Peaches; More ..."
 url: "https://cooking.allwomenstalk.com/top-vegan-desserts/"
 category: "cooking"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 7 Top Vegan Desserts ...
@@ -65,8 +65,6 @@ I love carrot cake because it is much healthier than other desserts due to the h
 **Vegan Dessert Recipe:** [vegetarian.about.com](https://www.thespruceeats.com/super-moist-vegan-carrot-cake-recipe-3378191)
 
 These are my **7 top vegan desserts** but let me tell you, I have many more! And once you start to look, you'll find hundreds of vegan desserts and dishes that taste as great as any dessert around, are really easy to make and even easier to eat! Are you tempted into trying them?
-
-Top Photo Credit: [aliciakachmar.com](http://www.aliciakachmar.com/blog/wp-content/uploads/2007/10/img_4124.jpg)
 
 ## Related Posts
 

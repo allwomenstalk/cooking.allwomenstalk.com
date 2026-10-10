@@ -3,7 +3,7 @@ title: "8 Extraordinary Vegetable Recipes ..."
 description: "Sweet Potato Curry with Paneer; Asparagus Risotto; Artichoke Hearts in Cider; Layered Spinach Pancakes; Roasted Vegetables; More ..."
 url: "https://cooking.allwomenstalk.com/extraordinary-vegetable-recipes/"
 category: "cooking"
-last_updated: "2026-09-28"
+last_updated: "2026-10-10"
 ---
 
 # 8 Extraordinary Vegetable Recipes ...
@@ -72,20 +72,18 @@ Soup is an endlessly versatile way of getting lots of veggies into your diet. Th
 
 Vegetables can make the centre of some fantastic recipes. I think many of us were put off them as kids, or think that they´re boring. That´s just not true. There are so many fantastic vegetable recipes to try, and such a wide variety available in the shops – including many vegetables for ethnic cooking. So be adventurous! Do you have a favourite vegetable recipe to share with us?
 
-Top Photo Credit: [weheartit.com](https://weheartit.com/entry/23136924)
-
 ## Related Posts
 
-- [easy entre](https://food.allwomenstalk.com/delicious-and-easy-entrees/)
-- [food commercials tricks](https://food.allwomenstalk.com/tricks-advertisers-use-to-make-food-look-good/)
-- [upside down jalapeno cornbread joshua weissman](https://cooking.allwomenstalk.com/fabulous-bread-recipes-from-around-the-world/)
-- [best restaurants indian](https://food.allwomenstalk.com/awesome-indian-dishes-to-try-in-a-restaurant/)
-- [whats good on asparagus](https://food.allwomenstalk.com/fantastic-and-delicious-ways-to-use-asparagus/)
-- [skinny kitchen secrets](https://food.allwomenstalk.com/old-and-true-kitchen-secrets-worth-knowing/)
-- [office potlucks](https://cooking.allwomenstalk.com/simple-and-tasty-dishes-for-office-potlucks/)
-- [creative grilled cheese ideas](https://cooking.allwomenstalk.com/exciting-grilled-cheese-recipes/)
-- [teacher appreciation food ideas](https://food.allwomenstalk.com/easy-dinner-recipes-for-two-to-wow-your-man/)
 - [problems with mrs dash](https://diet.allwomenstalk.com/extremely-delicious-low-sodium-recipes/)
+- [food commercials tricks](https://food.allwomenstalk.com/tricks-advertisers-use-to-make-food-look-good/)
+- [creative grilled cheese ideas](https://cooking.allwomenstalk.com/exciting-grilled-cheese-recipes/)
+- [whats good on asparagus](https://food.allwomenstalk.com/fantastic-and-delicious-ways-to-use-asparagus/)
+- [office potlucks](https://cooking.allwomenstalk.com/simple-and-tasty-dishes-for-office-potlucks/)
+- [best restaurants indian](https://food.allwomenstalk.com/awesome-indian-dishes-to-try-in-a-restaurant/)
+- [easy entre](https://food.allwomenstalk.com/delicious-and-easy-entrees/)
+- [upside down jalapeno cornbread joshua weissman](https://cooking.allwomenstalk.com/fabulous-bread-recipes-from-around-the-world/)
+- [teacher appreciation food ideas](https://food.allwomenstalk.com/easy-dinner-recipes-for-two-to-wow-your-man/)
+- [skinny kitchen secrets](https://food.allwomenstalk.com/old-and-true-kitchen-secrets-worth-knowing/)
 - [7 Cool Recipes to Try ...](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)
 - [8 Low Carb Vegan Veg out Recipes ...](https://cooking.allwomenstalk.com/low-carb-vegan-veg-out-recipes/)
 
