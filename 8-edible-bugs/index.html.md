@@ -3,7 +3,7 @@ title: "8 Edible Bugs ..."
 description: "Tequila Worm; Baked Tarantula; Pregnant Crickets; Wichetty Grubs; Larvets; More ..."
 url: "https://cooking.allwomenstalk.com/8-edible-bugs/"
 category: "cooking"
-last_updated: "2026-10-10"
+last_updated: "2026-10-22"
 ---
 
 # 8 Edible Bugs ...
