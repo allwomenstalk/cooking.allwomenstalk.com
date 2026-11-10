@@ -1,9 +1,9 @@
 ---
 title: "8 Unusual Pizza Toppings ..."
-description: "Squid; Potatoes; Corn; Spam; Roasted Cherries; More ..."
+description: "Squid; Potatoes; Corn; Spam; Roasted Cherries"
 url: "https://cooking.allwomenstalk.com/8-unusual-pizza-toppings/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 8 Unusual Pizza Toppings ...

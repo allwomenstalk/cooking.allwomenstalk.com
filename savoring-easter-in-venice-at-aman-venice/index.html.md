@@ -1,9 +1,9 @@
 ---
 title: "Exploring the Secrets of Venetian Easter Feasts..."
-description: "Discovering the Flavors of Venetian Culinary Arts; A Delight for All Senses: The Venetian Alpago Lamb; Celebrating Togetherness Around the Table; More ..."
+description: "Discovering the Flavors of Venetian Culinary Arts; A Delight for All Senses: The Venetian Alpago Lamb; Celebrating Togetherness Around the Table"
 url: "https://cooking.allwomenstalk.com/savoring-easter-in-venice-at-aman-venice/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Exploring the Secrets of Venetian Easter Feasts...

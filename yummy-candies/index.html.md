@@ -1,9 +1,9 @@
 ---
 title: "7 Yummy Candies ..."
-description: "Gummy Bears; Twizzlers; Lemon Drops; Gum Balls; Twix; More ..."
+description: "Gummy Bears; Twizzlers; Lemon Drops; Gum Balls; Twix"
 url: "https://cooking.allwomenstalk.com/yummy-candies/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Yummy Candies ...

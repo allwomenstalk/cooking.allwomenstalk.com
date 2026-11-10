@@ -1,9 +1,9 @@
 ---
 title: "8 Cookbooks from Iconic Female Chefs ..."
-description: "Elizabeth David; Julia Child; Delia Smith; Nigella Lawson; Ina Garten; More ..."
+description: "Elizabeth David; Julia Child; Delia Smith; Nigella Lawson; Ina Garten"
 url: "https://cooking.allwomenstalk.com/cookbooks-from-iconic-female-chefs/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 8 Cookbooks from Iconic Female Chefs ...

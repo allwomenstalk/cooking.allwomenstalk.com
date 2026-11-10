@@ -1,9 +1,9 @@
 ---
 title: "8 Sneaky Recipes for Kids Who Hate Vegetables ..."
-description: "Mini Quiches; Chicken Noodle Soup; Vegetable Frankie; Sweet Potato Sticks; Bubble & Squeak Potato Cakes; More ..."
+description: "Mini Quiches; Chicken Noodle Soup; Vegetable Frankie; Sweet Potato Sticks; Bubble & Squeak Potato Cakes"
 url: "https://cooking.allwomenstalk.com/sneaky-recipes-for-kids-who-hate-vegetables/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 8 Sneaky Recipes for Kids Who Hate Vegetables ...
@@ -76,16 +76,16 @@ Many children can be fussy about food, but with a bit of ingenuity, you can hide
 
 ## Related Posts
 
+- [hostess menu](https://food.allwomenstalk.com/top-menu-planning-tips-every-hostess-should-know/)
+- [recipes using lots of vegetables](https://cooking.allwomenstalk.com/extraordinary-vegetable-recipes/)
 - [baked potato fillers](https://cooking.allwomenstalk.com/fantastic-fillings-for-jacket-potatoes/)
+- [blog english moroccan](https://allwomenstalk.com/wonderfully-mouthwatering-moroccan-food-blogs/)
+- [easy entre](https://food.allwomenstalk.com/delicious-and-easy-entrees/)
+- [scrumptious steak](https://cooking.allwomenstalk.com/scrumptious-stir-fry-recipes/)
 - [easy ways to cook meat](https://cooking.allwomenstalk.com/scrumptious-ways-to-cook-red-meat/)
 - [scrumptious in spanish](https://allwomenstalk.com/wonderfully-scrumptious-spanish-cooking-blogs/)
-- [recipes using lots of vegetables](https://cooking.allwomenstalk.com/extraordinary-vegetable-recipes/)
-- [blog english moroccan](https://allwomenstalk.com/wonderfully-mouthwatering-moroccan-food-blogs/)
-- [scrumptious steak](https://cooking.allwomenstalk.com/scrumptious-stir-fry-recipes/)
-- [easy entre](https://food.allwomenstalk.com/delicious-and-easy-entrees/)
-- [food commercials tricks](https://food.allwomenstalk.com/tricks-advertisers-use-to-make-food-look-good/)
-- [hostess menu](https://food.allwomenstalk.com/top-menu-planning-tips-every-hostess-should-know/)
 - [non vegan water](https://cooking.allwomenstalk.com/great-vegan-recipes-for-non-vegans-to-try/)
+- [food commercials tricks](https://food.allwomenstalk.com/tricks-advertisers-use-to-make-food-look-good/)
 - [8 Scrumptious Recipes for Beginner Vegetarians ...](https://food.allwomenstalk.com/scrumptious-recipes-for-beginner-vegetarians/)
 - [8 Veggies to Serve Your Child ...](https://allwomenstalk.com/8-veggies-to-serve-your-child/)
 

@@ -1,9 +1,9 @@
 ---
 title: "7 Homemade Popsicles Your Kids Will Adore ..."
-description: "Lemon Cream Pop; Fresh Berries; Root Beer Float; Banana and Nutella; Chocolate Heaven; More ..."
+description: "Lemon Cream Pop; Fresh Berries; Root Beer Float; Banana and Nutella; Chocolate Heaven"
 url: "https://cooking.allwomenstalk.com/homemade-popsicles-your-kids-will-adore/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Homemade Popsicles Your Kids Will Adore ...

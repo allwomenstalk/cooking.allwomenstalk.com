@@ -1,9 +1,9 @@
 ---
 title: "7 Cool Recipes to Try ..."
-description: "Cinnamon Chips with Fruit Salsa; Pecans with Curry Powder; Turkey Spirals with Asparagus; Chicken and Cheese Turnovers; Coconut Shrimp with Apricot Dipping Sauce; More ..."
+description: "Cinnamon Chips with Fruit Salsa; Pecans with Curry Powder; Turkey Spirals with Asparagus; Chicken and Cheese Turnovers"
 url: "https://cooking.allwomenstalk.com/7-cool-recipes-to-try/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Cool Recipes to Try ...

@@ -1,9 +1,9 @@
 ---
 title: "10 Really Weird Ice Cream Flavours ..."
-description: "Cheese Ice Cream; Octopus Ice Cream; Spaghetti and Cheese Ice Cream; Caviar Ice Cream; Cold Sweat Ice Cream; More ..."
+description: "Cheese Ice Cream; Octopus Ice Cream; Spaghetti and Cheese Ice Cream; Caviar Ice Cream; Cold Sweat Ice Cream"
 url: "https://cooking.allwomenstalk.com/10-really-weird-ice-cream-flavours/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 10 Really Weird Ice Cream Flavours ...

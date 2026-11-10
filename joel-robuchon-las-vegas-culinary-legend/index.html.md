@@ -1,9 +1,9 @@
 ---
 title: "Culinary Innovation at Joël Robuchon: How Do They Do It?"
-description: "The Michelin Star Accolades; Chef Eleazar Villanueva: A Visionary in the Kitchen; Signature Dishes That Define Excellence; An Inviting Ambiance; Culinary Philosophy and Innovation; More ..."
+description: "The Michelin Star Accolades; Chef Eleazar Villanueva: A Visionary in the Kitchen; Signature Dishes That Define Excellence; An Inviting Ambiance"
 url: "https://cooking.allwomenstalk.com/joel-robuchon-las-vegas-culinary-legend/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Culinary Innovation at Joël Robuchon: How Do They Do It?

@@ -1,9 +1,9 @@
 ---
 title: "Top 10 Chocolate Recipes ..."
-description: "Chocolate Trifle; Eclair Cake; Chocolate Lovers' Favorite Cake; Mocha Layer Cake; Chewy Peanut Butter Blossoms; More ..."
+description: "Chocolate Trifle; Eclair Cake; Chocolate Lovers' Favorite Cake; Mocha Layer Cake; Chewy Peanut Butter Blossoms"
 url: "https://cooking.allwomenstalk.com/top-chocolate-recipes/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Top 10 Chocolate Recipes ...

@@ -1,9 +1,9 @@
 ---
 title: "7 Types of Cookies That I Love ..."
-description: "Black & White Cookies; Sugar Cookies; Lemon Cookies; No-Bake Cookies; French Macarons; More ..."
+description: "Black & White Cookies; Sugar Cookies; Lemon Cookies; No-Bake Cookies; French Macarons"
 url: "https://cooking.allwomenstalk.com/types-of-cookies-that-i-love/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Types of Cookies That I Love ...

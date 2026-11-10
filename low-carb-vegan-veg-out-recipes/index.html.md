@@ -1,9 +1,9 @@
 ---
 title: "8 Low Carb Vegan Veg out Recipes ..."
-description: "Raw Ice Cream; Spinach Delight; Tomato Treats; Guacamole and Veggies; Pineapple; More ..."
+description: "Raw Ice Cream; Spinach Delight; Tomato Treats; Guacamole and Veggies; Pineapple"
 url: "https://cooking.allwomenstalk.com/low-carb-vegan-veg-out-recipes/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 8 Low Carb Vegan Veg out Recipes ...

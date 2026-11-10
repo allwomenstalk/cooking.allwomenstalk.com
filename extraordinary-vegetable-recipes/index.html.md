@@ -1,9 +1,9 @@
 ---
 title: "8 Extraordinary Vegetable Recipes ..."
-description: "Sweet Potato Curry with Paneer; Asparagus Risotto; Artichoke Hearts in Cider; Layered Spinach Pancakes; Roasted Vegetables; More ..."
+description: "Sweet Potato Curry with Paneer; Asparagus Risotto; Artichoke Hearts in Cider; Layered Spinach Pancakes; Roasted Vegetables"
 url: "https://cooking.allwomenstalk.com/extraordinary-vegetable-recipes/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 8 Extraordinary Vegetable Recipes ...
@@ -74,16 +74,16 @@ Vegetables can make the centre of some fantastic recipes. I think many of us wer
 
 ## Related Posts
 
+- [creative grilled cheese ideas](https://cooking.allwomenstalk.com/exciting-grilled-cheese-recipes/)
+- [teacher appreciation food ideas](https://food.allwomenstalk.com/easy-dinner-recipes-for-two-to-wow-your-man/)
 - [easy entre](https://food.allwomenstalk.com/delicious-and-easy-entrees/)
 - [food commercials tricks](https://food.allwomenstalk.com/tricks-advertisers-use-to-make-food-look-good/)
-- [creative grilled cheese ideas](https://cooking.allwomenstalk.com/exciting-grilled-cheese-recipes/)
-- [upside down jalapeno cornbread joshua weissman](https://cooking.allwomenstalk.com/fabulous-bread-recipes-from-around-the-world/)
 - [office potlucks](https://cooking.allwomenstalk.com/simple-and-tasty-dishes-for-office-potlucks/)
-- [best restaurants indian](https://food.allwomenstalk.com/awesome-indian-dishes-to-try-in-a-restaurant/)
-- [whats good on asparagus](https://food.allwomenstalk.com/fantastic-and-delicious-ways-to-use-asparagus/)
-- [skinny kitchen secrets](https://food.allwomenstalk.com/old-and-true-kitchen-secrets-worth-knowing/)
 - [problems with mrs dash](https://diet.allwomenstalk.com/extremely-delicious-low-sodium-recipes/)
-- [teacher appreciation food ideas](https://food.allwomenstalk.com/easy-dinner-recipes-for-two-to-wow-your-man/)
+- [whats good on asparagus](https://food.allwomenstalk.com/fantastic-and-delicious-ways-to-use-asparagus/)
+- [best restaurants indian](https://food.allwomenstalk.com/awesome-indian-dishes-to-try-in-a-restaurant/)
+- [skinny kitchen secrets](https://food.allwomenstalk.com/old-and-true-kitchen-secrets-worth-knowing/)
+- [upside down jalapeno cornbread joshua weissman](https://cooking.allwomenstalk.com/fabulous-bread-recipes-from-around-the-world/)
 - [7 Cool Recipes to Try ...](https://cooking.allwomenstalk.com/7-cool-recipes-to-try/)
 - [8 Low Carb Vegan Veg out Recipes ...](https://cooking.allwomenstalk.com/low-carb-vegan-veg-out-recipes/)
 

@@ -1,9 +1,9 @@
 ---
 title: "8 Delicious and Healthy Italian Foods Recipes ..."
-description: "Gnocchi with Zucchini and Brown Butter; Tomato-Basil Lasagna with Prosciutto; Tofu Parmigiana; Garden Minestrone; Spaghetti with Tuna and Tomato Sauce; More ..."
+description: "Gnocchi with Zucchini and Brown Butter; Tomato-Basil Lasagna with Prosciutto; Tofu Parmigiana; Garden Minestrone; Spaghetti with Tuna and Tomato Sauce"
 url: "https://cooking.allwomenstalk.com/delicious-and-healthy-italian-foods-recipes/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 8 Delicious and Healthy Italian Foods Recipes ...

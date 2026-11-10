@@ -1,9 +1,9 @@
 ---
 title: "I Tested 8 Classic Cake Recipes So You Don’t Have To"
-description: "Red Velvet; Boston Cream Pie; Nigella’s Butterscotch Layer Cake; Carrot Cake; Baked Vanilla Cheesecake; More ..."
+description: "Red Velvet; Boston Cream Pie; Nigella’s Butterscotch Layer Cake; Carrot Cake; Baked Vanilla Cheesecake"
 url: "https://cooking.allwomenstalk.com/8-cakes-that-will-blow-your-mind/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # I Tested 8 Classic Cake Recipes So You Don’t Have To

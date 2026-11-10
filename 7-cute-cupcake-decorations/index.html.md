@@ -1,9 +1,9 @@
 ---
 title: "7 Cute Cupcake Decorations ..."
-description: "Wilton Make a Face Animal Icing Decorations; Crate and Barrel Set of 50 Mini Cupcake Papers; Wilton Hello Kitty Icing Decorations; Crate and Barrel Wedding Cupcake Decorating Kit; Mini Gingerbread Man Icing Decorations; More ..."
+description: "Wilton Make a Face Animal Icing Decorations; Crate and Barrel Set of 50 Mini Cupcake Papers; Wilton Hello Kitty Icing Decorations"
 url: "https://cooking.allwomenstalk.com/7-cute-cupcake-decorations/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Cute Cupcake Decorations ...

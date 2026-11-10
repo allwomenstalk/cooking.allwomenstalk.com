@@ -1,9 +1,9 @@
 ---
 title: "8 Sneaky Recipes for Kids Who Hate Vegetables ..."
-description: "Mini Quiches; Chicken Noodle Soup; Vegetable Frankie; Sweet Potato Sticks; Bubble & Squeak Potato Cakes; More ..."
+description: "Mini Quiches; Chicken Noodle Soup; Vegetable Frankie; Sweet Potato Sticks; Bubble & Squeak Potato Cakes"
 url: "https://cooking.allwomenstalk.com/sneaky-recipes-for-kids-who-hate-vegetables-2/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 8 Sneaky Recipes for Kids Who Hate Vegetables ...
@@ -231,16 +231,16 @@ Sources: [busycooks.about.com](https://www.thespruceeats.com/mini-crustless-spin
 
 ## Related Posts
 
-- [substitutes for cooking](https://food.allwomenstalk.com/simple-ingredient-substitutions-to-try/)
-- [healthy recipes kale](https://diet.allwomenstalk.com/healthy-kale-recipes/)
-- [500 calorie lunches for work](https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/)
 - [reuse cans](https://diy.allwomenstalk.com/clever-ways-to-repurpose-tuna-cans/)
 - [planning a dinner party for 10](https://lifestyle.allwomenstalk.com/easy-tips-on-throwing-the-best-dinner-party-ever/)
 - [what is the worst food for you](https://food.allwomenstalk.com/simple-dinner-anyone-can-learn-to-make/)
-- [new thanksgiving dinner ideas](https://allwomenstalk.com/7-new-ideas-for-thanksgiving-dinner/)
-- [ethnic food ideas](https://cooking.allwomenstalk.com/healthy-and-filling-ethnic-recipes-to-try-this-fall/)
+- [substitutes for cooking](https://food.allwomenstalk.com/simple-ingredient-substitutions-to-try/)
+- [healthy recipes kale](https://diet.allwomenstalk.com/healthy-kale-recipes/)
+- [500 calorie lunches for work](https://diet.allwomenstalk.com/quick-and-easy-meals-under-500-calories/)
 - [crescent roll instructions](https://cooking.allwomenstalk.com/easy-crescent-roll-recipes/)
+- [ethnic food ideas](https://cooking.allwomenstalk.com/healthy-and-filling-ethnic-recipes-to-try-this-fall/)
 - [best egg sandwich recipes](https://cooking.allwomenstalk.com/great-egg-sandwich-recipes-for-everyone/)
+- [new thanksgiving dinner ideas](https://allwomenstalk.com/7-new-ideas-for-thanksgiving-dinner/)
 - [8 Scrumptious Recipes for Beginner Vegetarians ...](https://food.allwomenstalk.com/scrumptious-recipes-for-beginner-vegetarians/)
 - [8 Veggies to Serve Your Child ...](https://allwomenstalk.com/8-veggies-to-serve-your-child/)
 

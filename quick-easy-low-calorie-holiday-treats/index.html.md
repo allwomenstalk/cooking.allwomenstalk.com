@@ -1,9 +1,9 @@
 ---
 title: "9 Quick & Easy Low Calorie Holiday Treats ..."
-description: "Low Fat Bread Pudding; Skinny Chocolate Cookies; Pumpkin Mousse Pie; Strawberry Trifle; Chocolate Angel Food Cupcakes; More ..."
+description: "Low Fat Bread Pudding; Skinny Chocolate Cookies; Pumpkin Mousse Pie; Strawberry Trifle; Chocolate Angel Food Cupcakes"
 url: "https://cooking.allwomenstalk.com/quick-easy-low-calorie-holiday-treats/"
 category: "cooking"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 9 Quick & Easy Low Calorie Holiday Treats ...

@@ -1,9 +1,9 @@
 ---
 title: "Transform Your Table with Williams Sonoma's Garden Lattice..."
-description: "The Elegance of Garden Lattice; Setting the Perfect Table; A Feast for the Eyes and Palate; Spring Sips and Delightful Drinks; Share Your Story; More ..."
+description: "The Elegance of Garden Lattice; Setting the Perfect Table; A Feast for the Eyes and Palate; Spring Sips and Delightful Drinks; Share Your Story"
 url: "https://cooking.allwomenstalk.com/embrace-spring-garden-lattice-dinnerware/"
 category: "dinnerware"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Transform Your Table with Williams Sonoma's Garden Lattice...
